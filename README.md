@@ -1,30 +1,27 @@
-# * I will try to keep this updated. *
+# * Syva's skins ('just cause' and for twitch chat) *
+Let me know if there's an issue with this page and I will try and fix it
 
-* [**xootynator Discord**](https://discord.gg/CardboardBox)
-* [**xootynator Twitch**](https://www.twitch.tv/xootynator)
+* [**Syvatzia's Discord**](https://discord.gg/ftrQeYRuZT)
+* [**Syvatzia's Twitch**](https://www.twitch.tv/Syvatzia)
 
-If anything is broken please DM me so I can fix it. 
 
-If a skin is missing or you are looking for other skins also feel free to DM me.
 
-Discord: **Bjönk#1911**
+If a skin is missing (and I'm not activly working on it) please let me know.
 
-:smirk: :nail_care: *girlboss time*
-## [ xootynCursors Folder](https://drive.google.com/file/d/1NKIxC3YScepT_xvPO7ALBuzvIw2FIuOR/view?usp=sharing)
-This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
-## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
+## [Rplace (standard)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 ![](https://i.imgur.com/RNIGsG3.jpg)
 
-## [『BlooMoon Re;Done』 - ft. Xootynator Long Purple Trail ](https://drive.google.com/file/d/1Js4rjVjmmstL23nv_Og-FVWbBa2BZKD5/view?usp=sharing)
+## [Kimi No Na Wa (standard, taiko, mania, ctb)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
 ![](https://i.imgur.com/BU931jS.png)
 
-## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail ](https://drive.google.com/file/d/1-Q52NF-LhqBA5GWbqtKnEUoV7NubcaRL/view?usp=sharing)
+## [Sakura (standard)](https://www.mediafire.com/file/vf4ty56nle8kthc/Sakura.osk/file)
 ![](https://i.imgur.com/oamiz1s.jpg)
-## [『BlooMoon Re;Done』 - Reedkussy ](https://drive.google.com/file/d/1dGHdA6p2Jd4Awv9oHz69Z_qkLeXPFc-m/view?usp=sharing)
+
+## [Azeria Svell (standard)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
 ![](https://i.imgur.com/vDV2Ikq.jpg)
 
-## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
+## [j̵͐͂u̵̍͘s̵͗̚t̸̊̌ ̵ m̵͋͆ō̶͐ṅ̴͛i̵͆̆ǩ̶̆á̵̓ ((standard, taiko, mania, ctb)](https://www.mediafire.com/file/lu382vnowf6chap/%2523_j%25CC%25B5%25CD%2590%25CD%2582u%25CC%25B5%25CC%258D%25CD%2598s%25CC%25B5%25CD%2597%25CC%259At%25CC%25B8%25CC%258A%25CC%258C_%25CC%25B5_m%25CC%25B5%25CD%258B%25CD%2586%25C5%258D%25CC%25B6%25CD%2590%25E1%25B9%2585%25CC%25B4%25CD%259Bi%25CC%25B5%25CD%2586%25CC%2586%25C7%25A9%25CC%25B6%25CC%2586%25C3%25A1%25CC%25B5%25CC%2593.osk/file)
 ![](https://i.imgur.com/kxzPWYx.png)
 
 ## [『BlooXoo』Long Blue Cursortrail](https://drive.google.com/file/d/1NyeyrayKGCWsvR08XpUgUddpSMFHBjsv/view?usp=sharing)
