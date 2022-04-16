@@ -1,28 +1,49 @@
-<!DOCTYPE html>
-<html>
-	<head>
-		<title>Hank Quinlan, Horrible Cop</title>
-	</head>
-	<body>
-		<nav>
-    		<ul>
-        		<li><a href="/">Home</a></li>
-	        	<li><a href="/about">About</a></li>
-        		<li><a href="/cv">CV</a></li>
-        		<li><a href="/blog">Blog</a></li>
-    		</ul>
-		</nav>
-		<div class="container">
-    		<div class="blurb">
-        		<h1>Hi there, I'm Hank Quinlan!</h1>
-				<p>I'm best known as the horrible cop from <em>A Touch of Evil</em> Don't trust me. <a href="/about">Read more about my life...</a></p>
-    		</div><!-- /.blurb -->
-		</div><!-- /.container -->
-		<footer>
-    		<ul>
-        		<li><a href="mailto:hankquinlanhub@gmail.com">email</a></li>
-        		<li><a href="https://github.com/hankquinlan">github.com/hankquinlan</a></li>
-			</ul>
-		</footer>
-	</body>
-</html>
+# * I will try to keep this updated. *
+
+* [**xootynator Discord**](https://discord.gg/CardboardBox)
+* [**xootynator Twitch**](https://www.twitch.tv/xootynator)
+
+If anything is broken please DM me so I can fix it. 
+
+If a skin is missing or you are looking for other skins also feel free to DM me.
+
+Discord: **Bjönk#1911**
+
+:smirk: :nail_care: *girlboss time*
+## [ xootynCursors Folder](https://drive.google.com/file/d/1NKIxC3YScepT_xvPO7ALBuzvIw2FIuOR/view?usp=sharing)
+This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
+
+## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
+![](https://i.imgur.com/RNIGsG3.jpg)
+
+## [『BlooMoon Re;Done』 - ft. Xootynator Long Purple Trail ](https://drive.google.com/file/d/1Js4rjVjmmstL23nv_Og-FVWbBa2BZKD5/view?usp=sharing)
+![](https://i.imgur.com/BU931jS.png)
+
+## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail ](https://drive.google.com/file/d/1-Q52NF-LhqBA5GWbqtKnEUoV7NubcaRL/view?usp=sharing)
+![](https://i.imgur.com/oamiz1s.jpg)
+## [『BlooMoon Re;Done』 - Reedkussy ](https://drive.google.com/file/d/1dGHdA6p2Jd4Awv9oHz69Z_qkLeXPFc-m/view?usp=sharing)
+![](https://i.imgur.com/vDV2Ikq.jpg)
+
+## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
+![](https://i.imgur.com/kxzPWYx.png)
+
+## [『BlooXoo』Long Blue Cursortrail](https://drive.google.com/file/d/1NyeyrayKGCWsvR08XpUgUddpSMFHBjsv/view?usp=sharing)
+![](https://i.imgur.com/ktaEFla.png)
+
+## [『BlooXoo』Green TryHard Cursor](https://drive.google.com/file/d/198VmN125CrVYB2khedz29yv-cK2HTOXz/view?usp=sharing)
+![](https://i.imgur.com/BKo0PZu.png)
+
+## [『BlooXoo』Cute Pink Cursor](https://drive.google.com/file/d/1vHD8zTAuY5PnPyhjqlGEInKUKLhyb8Te/view?usp=sharing)
+![](https://i.imgur.com/2UD1Ctm.png)
+
+## [SameSkinButNoRingHitCirclesWeirdName - Rebirth](https://drive.google.com/file/d/1PzgE4WmxVcXOv7hQPrQzfzGmkWkAft3v/view?usp=sharing)
+![](https://i.imgur.com/2fUiMGC.jpg)
+
+## [SameSkinButNoRingHitCirclesWeirdName - osu!reported edition](https://drive.google.com/file/d/1ukkyvufm0jZ2btDXA_6xqNxnSav_grbP/view?usp=sharing)
+![](https://i.imgur.com/FfCU44B.jpg)
+
+## [Thud2.1 - SS'er of Blue Dragons](https://drive.google.com/file/d/19oyDex0XSOfvBk7_tX7HdEXjtE4ZWlam/view?usp=sharing)
+![](https://i.imgur.com/Olk0VBd.jpg)
+ 
+## [xooty mania skin](https://mega.nz/file/dOZxlQgA#9hU7wLeu_UMKgQXUF9wMXXTaJmznYPk25lGta-7061U)
+![](https://i.imgur.com/02Kkbzg.png)
