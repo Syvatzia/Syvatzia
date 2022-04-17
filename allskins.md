@@ -42,16 +42,19 @@ If a skin is missing (and I'm not activly working on it) please let me know.
 
 ## [Vi (Standard)](https://www.mediafire.com/file/0fbghy85jymiimw/Vi_%2528WIP%2529.osk/file)
 ![Imgur](https://imgur.com/wnpiHy7.png)
+![Imgur](https://imgur.com/okPw1pQ.png)
 
-## [DNDOSU](https://www.mediafire.com/file/446zohacyeccufs/DND_%2528WIP%2529.osk/file)
+## [DNDOSU (Standard... mostly done...)](https://www.mediafire.com/file/446zohacyeccufs/DND_%2528WIP%2529.osk/file)
 ![Imgur](https://imgur.com/RfJeKgI.jpg)
+![Imgur](https://imgur.com/B1h4RAH.png)
 
 ## [EnemyStand (Standard flaslight skin)](https://www.mediafire.com/file/6x840gdsydkvxie/EnemyStand+2021.osk/file)
 ![Imgur](https://imgur.com/06cU0II.jpg)
+![Imgur](https://imgur.com/YrKNxYj.png)
 
 ## [SpankySauske (Standard)](https://www.mediafire.com/file/no1mag5ovy5b0d5/SpankySasuke.osk/file)
 ![Imgur](https://imgur.com/BCVh4TB.jpg)
-
+![Imgur](https://imgur.com/NkNMlF2.png)
 
 **- - - -Slight changes in skins already listed- - - -**
 ## [Kimi No Na Wa - long tail (standard, taiko, mania, ctb)](https://www.mediafire.com/file/z5hdgn3ignh6f7k/Kimi+No+Na+Wa.osk/file)
