@@ -1,4 +1,4 @@
-# Syva's skins 
+# Syvatzia's skins
 ('just cause' and for twitch chat) 
 
 Let me know if there's an issue with this page and I will try and fix it
