@@ -13,10 +13,12 @@ If a skin is missing (and I'm not activly working on it) please let me know.
 
 ## [WORK IN PORGRESS: skin for SGFL (standard)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 ![Imgur](https://imgur.com/aWXAFIn.png)
+![Imgur](https://imgur.com/paXa92T.png)
 
 
 ## [WORK IN PROGRESS: Purrfect Snow (standard)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 ![Imgur](https://imgur.com/V9RqIGs.png)
+![Imgur](https://imgur.com/JsDdNcm.png)
 
 ## [Rplace (standard)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 ![Imgur](https://imgur.com/aWXAFIn.png)
