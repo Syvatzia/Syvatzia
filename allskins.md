@@ -71,6 +71,10 @@ Modes:
 ## [Kimi No Na Wa - long tail (standard, taiko, mania, ctb)](https://www.mediafire.com/file/z5hdgn3ignh6f7k/Kimi+No+Na+Wa.osk/file)
 ![Imgur](https://imgur.com/Z1dBOrd.png)
 
+## [Neon Fox (Standard)](https://www.mediafire.com/file/v2d4ww7m2vot4we/NeonFoxlong+tail.osk/file)
+![Imgur](https://imgur.com/hZDV6hw.png)
+![Imgur](https://imgur.com/9Pc7b1F.png)
+
 ## [Sakura - heart cursor (standard)](https://www.mediafire.com/file/21ed4tqsws777sh/SakuraHeart.osk/file)
 ![Imgur](https://imgur.com/jSJD3Ct.png)
 
