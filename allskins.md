@@ -12,60 +12,73 @@ If a skin is missing (and I'm not activly working on it) please let me know.
 
 
 ## [WORK IN PORGRESS: skin for SGFL (standard)](https://www.mediafire.com/file/rnipthd0k1acxwu/SGFL.osk/file)
+Requested by SGFL
 ![Imgur](https://imgur.com/zvYS3Xt.png)
 ![Imgur](https://imgur.com/paXa92T.png)
 
 
 ## [WORK IN PROGRESS: Purrfect Snow (standard)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
+Made just 'cause
 ![Imgur](https://imgur.com/V9RqIGs.png)
 ![Imgur](https://imgur.com/JsDdNcm.png)
 
 ## [Rplace (standard)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
+Made just 'cause 
 ![Imgur](https://imgur.com/aWXAFIn.png)
 ![Imgur](https://imgur.com/gWjn5zD.png)
 
 ## [Kimi No Na Wa (standard, taiko, mania, ctb)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
+Made just 'cause
 ![Imgur](https://i.imgur.com/NsOHzy6.png)
 ![Imgur](https://imgur.com/S2fluCH.png)
 Modes:
 ![Imgur](https://imgur.com/9AZ09cg.png)
 
 ## [Sakura (standard)](https://www.mediafire.com/file/vf4ty56nle8kthc/Sakura.osk/file)
+Made for MarsBar
 ![Imgur](https://imgur.com/zhSbEs5.png)
 ![Imgur](https://imgur.com/RI6NI8v.png)
 
 
 ## [Azeria Svell (standard)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
+First skin I made
 ![Imgur](https://imgur.com/aNcJ0PB.jpg)
 ![Imgur](https://imgur.com/5PixlLx.png)
 
 ## [j̵͐͂u̵̍͘s̵͗̚t̸̊̌ ̵ m̵͋͆ō̶͐ṅ̴͛i̵͆̆ǩ̶̆á̵̓ ((standard, taiko, mania, ctb)](https://www.mediafire.com/file/lu382vnowf6chap/%2523_j%25CC%25B5%25CD%2590%25CD%2582u%25CC%25B5%25CC%258D%25CD%2598s%25CC%25B5%25CD%2597%25CC%259At%25CC%25B8%25CC%258A%25CC%258C_%25CC%25B5_m%25CC%25B5%25CD%258B%25CD%2586%25C5%258D%25CC%25B6%25CD%2590%25E1%25B9%2585%25CC%25B4%25CD%259Bi%25CC%25B5%25CD%2586%25CC%2586%25C7%25A9%25CC%25B6%25CC%2586%25C3%25A1%25CC%25B5%25CC%2593.osk/file)
+Made for Public-Sama
 ![Imgur](https://imgur.com/7YjkGLw.png)
 ![Imgur](https://imgur.com/0CBXxtw.png)
 Modes:
 ![Imgur](https://imgur.com/zvmVgJu.png)
 
 ## [Neon Fox (Standard)](https://www.mediafire.com/file/4fn0atem8hq31ak/NeonFox.osk/file)
+Made for MTM
 ![Imgur](https://imgur.com/cnPbjQi.png)
 ![Imgur](https://imgur.com/9Pc7b1F.png)
 
 ## [GetJinxed (Standard)](https://www.mediafire.com/file/tq3xf5qyro81nms/GetJinxed.osk/file)
+Made for Dagaz
 ![Imgur](https://imgur.com/291JVK6.png)
 ![Imgur](https://imgur.com/Ql8hVQs.png)
 
 ## [Vi (Standard)](https://www.mediafire.com/file/0fbghy85jymiimw/Vi_%2528WIP%2529.osk/file)
+Made for Dagaz, goes with Jinx
 ![Imgur](https://imgur.com/wnpiHy7.png)
 ![Imgur](https://imgur.com/okPw1pQ.png)
 
 ## [DNDOSU (Standard... mostly done...)](https://www.mediafire.com/file/446zohacyeccufs/DND_%2528WIP%2529.osk/file)
+Made for Dagaz/Fiend
 ![Imgur](https://imgur.com/RfJeKgI.jpg)
 ![Imgur](https://imgur.com/B1h4RAH.png)
 
 ## [EnemyStand (Standard flaslight skin)](https://www.mediafire.com/file/6x840gdsydkvxie/EnemyStand+2021.osk/file)
+Made for Chocolita
 ![Imgur](https://imgur.com/06cU0II.jpg)
 ![Imgur](https://imgur.com/YrKNxYj.png)
 
 ## [SpankySauske (Standard)](https://www.mediafire.com/file/no1mag5ovy5b0d5/SpankySasuke.osk/file)
+Made for Spanky
 ![Imgur](https://imgur.com/BCVh4TB.jpg)
 ![Imgur](https://imgur.com/NkNMlF2.png)
 
