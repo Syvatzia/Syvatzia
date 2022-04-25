@@ -12,7 +12,7 @@ If a skin is missing (and I'm not activly working on it) please let me know.
 
 
 ## [WORK IN PORGRESS: skin for SGFL (standard)](https://www.mediafire.com/file/rnipthd0k1acxwu/SGFL.osk/file)
-Requested by SGFL
+Requested by SGFL (instantly dissapearing hitcircles)
 ![Imgur](https://imgur.com/zvYS3Xt.png)
 ![Imgur](https://imgur.com/paXa92T.png)
 
@@ -28,7 +28,7 @@ Made just 'cause
 ![Imgur](https://imgur.com/gWjn5zD.png)
 
 ## [Kimi No Na Wa (standard, taiko, mania, ctb)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
-Made just 'cause
+Made just 'cause (instantly dissapearing hitcircles)
 ![Imgur](https://i.imgur.com/NsOHzy6.png)
 ![Imgur](https://imgur.com/S2fluCH.png)
 Modes:
