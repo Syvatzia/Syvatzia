@@ -11,9 +11,9 @@ Let me know if there's an issue with this page and I will fix it
 If a skin is missing (and I'm not actively working on it) please let me know.
 
 
-## [WORK IN PORGRESS: skin for SGFL (standard)](https://www.mediafire.com/file/rnipthd0k1acxwu/SGFL.osk/file)
+## [SGFL's Paradise (standard)](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
 Requested by SGFL (instantly dissapearing hitcircles)
-![Imgur](https://imgur.com/gxzEOjG.png)
+![Imgur](https://imgur.com/IfruEgl.png)
 ![Imgur](https://imgur.com/wveNp0X.png)
 
 
