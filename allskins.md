@@ -11,87 +11,87 @@ Let me know if there's an issue with this page and I will fix it
 If a skin is missing (and I'm not actively working on it) please let me know.
 
 
-## [SGFL's Paradise (standard)](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
+## [SGFL's Paradise (standard HD)](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
 Requested by SGFL (instantly dissapearing hitcircles [default HP bakground available])
 ![Imgur](https://imgur.com/IfruEgl.png)
 ![Imgur](https://imgur.com/wveNp0X.png)
 
 
-## [WORK IN PROGRESS: Purrfect Snow (standard)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
+## [WORK IN PROGRESS: Purrfect Snow (standard HD)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 Made just 'cause
 ![Imgur](https://imgur.com/V9RqIGs.png)
 ![Imgur](https://imgur.com/JsDdNcm.png)
 
-## [Rplace (standard)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
+## [Rplace (standard HD)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 Made just 'cause 
 ![Imgur](https://imgur.com/aWXAFIn.png)
 ![Imgur](https://imgur.com/gWjn5zD.png)
 
-## [Kimi No Na Wa (standard, taiko, mania, ctb)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
+## [Kimi No Na Wa (standard, taiko, mania, ctb HD)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
 Made just 'cause (instantly dissapearing hitcircles)
 ![Imgur](https://i.imgur.com/NsOHzy6.png)
 ![Imgur](https://imgur.com/S2fluCH.png)
 Modes:
 ![Imgur](https://imgur.com/9AZ09cg.png)
 
-## [Sakura (standard)](https://www.mediafire.com/file/vf4ty56nle8kthc/Sakura.osk/file)
+## [Sakura (standard HD)](https://www.mediafire.com/file/vf4ty56nle8kthc/Sakura.osk/file)
 Made for MarsBar
 ![Imgur](https://imgur.com/zhSbEs5.png)
 ![Imgur](https://imgur.com/RI6NI8v.png)
 
 
-## [Azeria Svell (standard)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
+## [Azeria Svell (standard HD)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
 First skin I made
 ![Imgur](https://imgur.com/aNcJ0PB.jpg)
 ![Imgur](https://imgur.com/5PixlLx.png)
 
-## [j̵͐͂u̵̍͘s̵͗̚t̸̊̌ ̵ m̵͋͆ō̶͐ṅ̴͛i̵͆̆ǩ̶̆á̵̓ ((standard, taiko, mania, ctb)](https://www.mediafire.com/file/lu382vnowf6chap/%2523_j%25CC%25B5%25CD%2590%25CD%2582u%25CC%25B5%25CC%258D%25CD%2598s%25CC%25B5%25CD%2597%25CC%259At%25CC%25B8%25CC%258A%25CC%258C_%25CC%25B5_m%25CC%25B5%25CD%258B%25CD%2586%25C5%258D%25CC%25B6%25CD%2590%25E1%25B9%2585%25CC%25B4%25CD%259Bi%25CC%25B5%25CD%2586%25CC%2586%25C7%25A9%25CC%25B6%25CC%2586%25C3%25A1%25CC%25B5%25CC%2593.osk/file)
+## [j̵͐͂u̵̍͘s̵͗̚t̸̊̌ ̵ m̵͋͆ō̶͐ṅ̴͛i̵͆̆ǩ̶̆á̵̓ ((standard, taiko, mania, ctb HD)](https://www.mediafire.com/file/lu382vnowf6chap/%2523_j%25CC%25B5%25CD%2590%25CD%2582u%25CC%25B5%25CC%258D%25CD%2598s%25CC%25B5%25CD%2597%25CC%259At%25CC%25B8%25CC%258A%25CC%258C_%25CC%25B5_m%25CC%25B5%25CD%258B%25CD%2586%25C5%258D%25CC%25B6%25CD%2590%25E1%25B9%2585%25CC%25B4%25CD%259Bi%25CC%25B5%25CD%2586%25CC%2586%25C7%25A9%25CC%25B6%25CC%2586%25C3%25A1%25CC%25B5%25CC%2593.osk/file)
 Made for Public-Sama
 ![Imgur](https://imgur.com/7YjkGLw.png)
 ![Imgur](https://imgur.com/0CBXxtw.png)
 Modes:
 ![Imgur](https://imgur.com/zvmVgJu.png)
 
-## [Neon Fox (Standard)](https://www.mediafire.com/file/4fn0atem8hq31ak/NeonFox.osk/file)
+## [Neon Fox (Standard HD)](https://www.mediafire.com/file/4fn0atem8hq31ak/NeonFox.osk/file)
 Made for MTM
 ![Imgur](https://imgur.com/cnPbjQi.png)
 ![Imgur](https://imgur.com/9Pc7b1F.png)
 
-## [GetJinxed (Standard)](https://www.mediafire.com/file/tq3xf5qyro81nms/GetJinxed.osk/file)
+## [GetJinxed (Standard HD)](https://www.mediafire.com/file/tq3xf5qyro81nms/GetJinxed.osk/file)
 Made for Dagaz
 ![Imgur](https://imgur.com/291JVK6.png)
 ![Imgur](https://imgur.com/Ql8hVQs.png)
 
-## [Vi (Standard)](https://www.mediafire.com/file/0fbghy85jymiimw/Vi_%2528WIP%2529.osk/file)
+## [Vi (Standard HD)](https://www.mediafire.com/file/0fbghy85jymiimw/Vi_%2528WIP%2529.osk/file)
 Made for Dagaz, goes with Jinx
 ![Imgur](https://imgur.com/wnpiHy7.png)
 ![Imgur](https://imgur.com/okPw1pQ.png)
 
-## [DNDOSU (Standard... mostly done...)](https://www.mediafire.com/file/446zohacyeccufs/DND_%2528WIP%2529.osk/file)
+## [DNDOSU (Standard... mostly done... HD)](https://www.mediafire.com/file/446zohacyeccufs/DND_%2528WIP%2529.osk/file)
 Made for Dagaz/Fiend
 ![Imgur](https://imgur.com/RfJeKgI.jpg)
 ![Imgur](https://imgur.com/B1h4RAH.png)
 
-## [EnemyStand (Standard flaslight skin)](https://www.mediafire.com/file/6x840gdsydkvxie/EnemyStand+2021.osk/file)
+## [EnemyStand (Standard flaslight skin HD)](https://www.mediafire.com/file/6x840gdsydkvxie/EnemyStand+2021.osk/file)
 Made for Chocolita
 ![Imgur](https://imgur.com/06cU0II.jpg)
 ![Imgur](https://imgur.com/YrKNxYj.png)
 
-## [SpankySauske (Standard)](https://www.mediafire.com/file/no1mag5ovy5b0d5/SpankySasuke.osk/file)
+## [SpankySauske (Standard HD)](https://www.mediafire.com/file/no1mag5ovy5b0d5/SpankySasuke.osk/file)
 Made for Spanky
 ![Imgur](https://imgur.com/BCVh4TB.jpg)
 ![Imgur](https://imgur.com/NkNMlF2.png)
 
 **- - - -Slight changes in skins already listed- - - -**
-## [Kimi No Na Wa - long tail (standard, taiko, mania, ctb)](https://www.mediafire.com/file/z5hdgn3ignh6f7k/Kimi+No+Na+Wa.osk/file)
+## [Kimi No Na Wa - long tail (standard, taiko, mania, ctb HD)](https://www.mediafire.com/file/z5hdgn3ignh6f7k/Kimi+No+Na+Wa.osk/file)
 ![Imgur](https://imgur.com/Z1dBOrd.png)
 
-## [Neon Fox - long tail and orange cursor (Standard)](https://www.mediafire.com/file/v2d4ww7m2vot4we/NeonFoxlong+tail.osk/file)
+## [Neon Fox - long tail and orange cursor (Standard HD)](https://www.mediafire.com/file/v2d4ww7m2vot4we/NeonFoxlong+tail.osk/file)
 ![Imgur](https://imgur.com/hZDV6hw.png)
 ![Imgur](https://imgur.com/9Pc7b1F.png)
 
-## [Sakura - heart cursor (standard)](https://www.mediafire.com/file/21ed4tqsws777sh/SakuraHeart.osk/file)
+## [Sakura - heart cursor (standard HD)](https://www.mediafire.com/file/21ed4tqsws777sh/SakuraHeart.osk/file)
 ![Imgur](https://imgur.com/jSJD3Ct.png)
 
-## [SpankySauske - running Naurto slider (Standard)](https://www.mediafire.com/file/3mzogrvvszjffjv/SpankySasuke+Naruto+slider.osk/file)
+## [SpankySauske - running Naurto slider (Standard HD)](https://www.mediafire.com/file/3mzogrvvszjffjv/SpankySasuke+Naruto+slider.osk/file)
 ![Imgur](https://imgur.com/UojuXpN.jpg)
