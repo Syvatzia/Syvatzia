@@ -12,7 +12,7 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 
 
 ## [SGFL's Paradise (standard)](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
-Requested by SGFL (instantly dissapearing hitcircles)
+Requested by SGFL (instantly dissapearing hitcircles [default HP bakground available])
 ![Imgur](https://imgur.com/IfruEgl.png)
 ![Imgur](https://imgur.com/wveNp0X.png)
 
