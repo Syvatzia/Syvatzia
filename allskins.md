@@ -95,3 +95,7 @@ Made for Spanky
 
 ## [SpankySauske - running Naurto slider (Standard HD)](https://www.mediafire.com/file/3mzogrvvszjffjv/SpankySasuke+Naruto+slider.osk/file)
 ![Imgur](https://imgur.com/UojuXpN.jpg)
+
+**Modified skins**
+## [Eliteronix (Standard, mania, CTB and taiko HD)](https://www.mediafire.com/file/8dcnk8ou6zbbxcj/Eliteronix.osk/file)
+Modified for Eliteronix
