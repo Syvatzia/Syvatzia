@@ -1,14 +1,14 @@
 # Syvatzia's skins
 ('just cause' and for twitch chat) 
 
-Let me know if there's an issue with this page and I will try and fix it
+Let me know if there's an issue with this page and I will fix it
 
 * [**Syvatzia's Discord**](https://discord.gg/ftrQeYRuZT)
 * [**Syvatzia's Twitch**](https://www.twitch.tv/Syvatzia)
 
 
 
-If a skin is missing (and I'm not activly working on it) please let me know.
+If a skin is missing (and I'm not actively working on it) please let me know.
 
 
 ## [WORK IN PORGRESS: skin for SGFL (standard)](https://www.mediafire.com/file/rnipthd0k1acxwu/SGFL.osk/file)
