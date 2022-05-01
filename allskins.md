@@ -12,22 +12,22 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 
 
 
-## [WORK IN PROGRESS: Purrfect Snow (standard HD)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
+## [WORK IN PROGRESS: Purrfect Snow (standard; HD)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 Made just 'cause
 ![Imgur](https://imgur.com/V9RqIGs.png)
 ![Imgur](https://imgur.com/JsDdNcm.png)
 
-## [SGFL's Paradise (standard HD)](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
+## [SGFL's Paradise (standard; HD/SD)](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
 Requested by SGFL (instantly dissapearing hitcircles [default HP bakground available])
 ![Imgur](https://imgur.com/IfruEgl.png)
 ![Imgur](https://imgur.com/wveNp0X.png)
 
-## [Rplace (standard HD)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
+## [Rplace (standard HD/SD)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 Made just 'cause 
 ![Imgur](https://imgur.com/aWXAFIn.png)
 ![Imgur](https://imgur.com/gWjn5zD.png)
 
-## [Kimi No Na Wa (standard, taiko, mania, ctb HD)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
+## [Kimi No Na Wa (standard, taiko, mania, ctb HD/SD)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
 Made just 'cause (instantly dissapearing hitcircles)
 ![Imgur](https://i.imgur.com/NsOHzy6.png)
 ![Imgur](https://imgur.com/S2fluCH.png)
