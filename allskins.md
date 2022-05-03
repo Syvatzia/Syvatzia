@@ -17,6 +17,10 @@ Made just 'cause
 ![Imgur](https://imgur.com/V9RqIGs.png)
 ![Imgur](https://imgur.com/JsDdNcm.png)
 
+## [~ HiveWire Dango Daikazoku ~ (standard; HD/SD)](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
+![Imgur](https://imgur.com/u5Uc9fV.png)
+![Imgur](https://imgur.com/uKazxep.png)
+
 ## [SGFL's Paradise (standard; HD/SD)](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
 Requested by SGFL (instantly dissapearing hitcircles [default HP bakground available])
 ![Imgur](https://imgur.com/IfruEgl.png)
