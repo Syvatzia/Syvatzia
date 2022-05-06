@@ -14,8 +14,8 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 
 ## [WORK IN PROGRESS: Purrfect Snow (standard; HD)](https://www.mediafire.com/file/ovxc2lj9hgut299/Purrfect_Snowday%25282%2529.osk/file)
 Made just 'cause
-![Imgur](https://imgur.com/V9RqIGs.png)
-![Imgur](https://imgur.com/JsDdNcm.png)
+![Imgur](https://imgur.com/HEn4zlA.png)
+![Imgur](https://imgur.com/77U67uJ.png)
 
 ## [~ HiveWire Dango Daikazoku ~ (standard; HD/SD)](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
 ![Imgur](https://imgur.com/u5Uc9fV.png)
