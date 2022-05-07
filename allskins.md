@@ -28,7 +28,7 @@ Requested by SGFL (instantly dissapearing hitcircles [default HP bakground avail
 ![Imgur](https://imgur.com/wveNp0X.png)
 
 ## [Rplace (standard HD/SD)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
-Made just 'cause 
+Made just 'cause I wasn't ready to be done with r/place 
 ![Imgur](https://imgur.com/aWXAFIn.png)
 ![Imgur](https://imgur.com/gWjn5zD.png)
 
