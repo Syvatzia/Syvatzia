@@ -17,7 +17,8 @@ Made just 'cause
 ![Imgur](https://imgur.com/HEn4zlA.png)
 ![Imgur](https://imgur.com/77U67uJ.png)
 
-## [~ HiveWire Dango Daikazoku ~ (standard; HD/SD)](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
+## [~ Dango Daikazoku ~ (standard; HD/SD)](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
+Skin requested by HiveWire
 ![Imgur](https://imgur.com/u5Uc9fV.png)
 ![Imgur](https://imgur.com/uKazxep.png)
 
