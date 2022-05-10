@@ -13,7 +13,7 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 NEWEST:
 ## [Sai (standard; HD)](https://www.mediafire.com/file/xe0nyssrjepvnkj/Sai.osk/file) 
 
-## [WORK IN PROGRESS: Purrfect Snow (standard; HD)](https://www.mediafire.com/file/mxi6t4cnyf3hpwj/Purrfect_Snowday.osk/file)
+## [Purrfect Snow (standard; HD)](https://www.mediafire.com/file/mxi6t4cnyf3hpwj/Purrfect_Snowday.osk/file)
 Made just 'cause
 ![Imgur](https://imgur.com/HEn4zlA.png)
 ![Imgur](https://imgur.com/77U67uJ.png)
