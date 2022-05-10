@@ -10,7 +10,7 @@ Let me know if there's an issue with this page and I will fix it
 
 If a skin is missing (and I'm not actively working on it) please let me know.
 
-NEW:
+NEWEST:
 ## [Sai (standard; HD)](https://www.mediafire.com/file/xe0nyssrjepvnkj/Sai.osk/file) 
 
 ## [WORK IN PROGRESS: Purrfect Snow (standard; HD)](https://www.mediafire.com/file/mxi6t4cnyf3hpwj/Purrfect_Snowday.osk/file)
