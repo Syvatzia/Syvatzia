@@ -12,7 +12,7 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 
 ________________________________________________________________________________________
 Working on: Nightlocke's request, Hikawa Sayo skin
-## [‹ₛ¥ᵥ› Sayo (« Nightlocke ») (standard; HD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
+## [Sayo (« Nightlocke ») (standard; HD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
 
 ________________________________________________________________________________________
 
