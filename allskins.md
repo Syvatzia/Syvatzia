@@ -11,10 +11,12 @@ Let me know if there's an issue with this page and I will fix it
 If a skin is missing (and I'm not actively working on it) please let me know.
 
 ________________________________________________________________________________________
-Working on: Nightlocke's request, Hikawa Sayo skin
+Current WIP:
+## [‹ₛ¥ᵥ› STMC Mani (standard; HD)](https://www.mediafire.com/file/ak84j2qk4d81cu6/‹ₛ¥ᵥ›+STMC+Mani.osk/file) 
+________________________________________________________________________________________
+Nightlocke's request, Hikawa Sayo skin
 ## [Sayo (« Nightlocke ») (standard; HD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
 ![Imgur](https://imgur.com/7cEw8bK.png)
-________________________________________________________________________________________
 
 ## [Sai (standard; HD)](https://www.mediafire.com/file/xe0nyssrjepvnkj/Sai.osk/file) 
 Requsted by Sai1kou
