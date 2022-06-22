@@ -21,7 +21,8 @@ OGM_Ofiicial's request, Highschool DXD skin
 
 Nightlocke's request, Hikawa Sayo skin
 ## [Sayo (« Nightlocke ») (standard; HD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
-![Imgur](https://imgur.com/7cEw8bK.png)
+![Imgur](https://imgur.com/undefined.png)
+![Imgur](https://imgur.com/VrykVal.png)
 
 ## [Sai (standard; HD)](https://www.mediafire.com/file/xe0nyssrjepvnkj/Sai.osk/file) 
 Requsted by Sai1kou
