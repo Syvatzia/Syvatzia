@@ -14,6 +14,7 @@ ________________________________________________________________________________
 Current WIP:
 ## [‹ₛ¥ᵥ› STMC Mani (standard; HD)](https://www.mediafire.com/file/ak84j2qk4d81cu6/‹ₛ¥ᵥ›+STMC+Mani.osk/file) 
 ![Imgur](https://imgur.com/MpkVZ8H.png)
+![Imgur](https://imgur.com/vtS4Ilj.png)
 ________________________________________________________________________________________
 OGM_Ofiicial's request, Highschool DXD skin
 ## [Simple OGM (standard; HD/SD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file]](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file)) 
