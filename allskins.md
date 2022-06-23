@@ -12,6 +12,7 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 
 ________________________________________________________________________________________
 Current WIP:
+Just 'cause, slightly based off DTMC Freedom Dive
 ## [‹ₛ¥ᵥ› STMC Mani (standard; HD)](https://www.mediafire.com/file/ak84j2qk4d81cu6/‹ₛ¥ᵥ›+STMC+Mani.osk/file) 
 ![Imgur](https://imgur.com/MpkVZ8H.png)
 ![Imgur](https://imgur.com/vtS4Ilj.png)
