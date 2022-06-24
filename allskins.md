@@ -27,7 +27,7 @@ Nightlocke's request, Hikawa Sayo skin
 ![Imgur](https://imgur.com/MsEkO4X.png)
 ![Imgur](https://imgur.com/VrykVal.png)
 
-## [Sai (standard; HD)](https://www.mediafire.com/file/xe0nyssrjepvnkj/Sai.osk/file) 
+## [Sai (standard; HD)](https://www.mediafire.com/file/xe0nyssrjepvnkj/Sai.osk/file](https://www.mediafire.com/file/ojxnxksr1swjmqh/‹ₛ¥ᵥ›+Sai.osk/file) 
 Requsted by Sai1kou
 ![Imgur](https://imgur.com/iaajVLd.png)
 ![Imgur](https://imgur.com/E3FUWjV.png)
