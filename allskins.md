@@ -33,7 +33,7 @@ Requsted by Sai1kou
 ![Imgur](https://imgur.com/E3FUWjV.png)
 
 
-## [Holo Apples (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Holo_Apples.osk/file) 
+## [Holo Apples - No acc during play (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Holo_Apples.osk/file) 
 Requsted by DamnKid
 ![Imgur](https://imgur.com/btvstXW.png)
 ![Imgur](https://imgur.com/l5Jn52l.png)
@@ -113,6 +113,11 @@ Made for Spanky
 ![Imgur](https://imgur.com/NkNMlF2.png)
 
 **- - - -Slight changes in skins already listed- - - -**
+## [Holo Apples - No acc during play (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Holo_Apples.osk/file) 
+Requsted by DamnKid
+![Imgur](https://imgur.com/btvstXW.png)
+![Imgur](https://imgur.com/l5Jn52l.png)
+
 ## [Kimi No Na Wa - long tail (standard, taiko, mania, ctb HD)](https://www.mediafire.com/file/z5hdgn3ignh6f7k/Kimi+No+Na+Wa.osk/file)
 ![Imgur](https://imgur.com/Z1dBOrd.png)
 
