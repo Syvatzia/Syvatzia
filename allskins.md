@@ -17,6 +17,13 @@ Just 'cause, slightly based off DTMC Freedom Dive
 ![Imgur](https://imgur.com/Eu7MQxF.png)
 ![Imgur](https://imgur.com/JA3mOoL.png)
 ________________________________________________________________________________________
+
+## [Simple OGM (standard; HD/SD)](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file) 
+O K U's request, Inabakumori skin
+![Imgur](https://imgur.com/KEu5ra3.png)
+![Imgur](https://imgur.com/AqNQ7te.png)
+
+
 ## [Simple OGM (standard; HD/SD)](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file) 
 OGM_Ofiicial's request, Highschool DXD skin
 ![Imgur](https://imgur.com/e03HWa3.png)
