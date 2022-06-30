@@ -20,8 +20,8 @@ ________________________________________________________________________________
 
 ## [‹ₛ¥ᵥ› Inabakumori - O K U (standard; HD/SD)](https://www.mediafire.com/file/j8pypsiv45hwrtx/‹ₛ¥ᵥ›+Inabakumori+-+O+K+U.osk/file) 
 O K U's request, Inabakumori skin, based off Bacon Boi blue skin
-![Imgur](https://imgur.com/KEu5ra3.png)
-![Imgur](https://imgur.com/AqNQ7te.png)
+![Imgur](https://imgur.com/lpoDWMv.png)
+![Imgur](https://imgur.com/eW8479l.png)
 
 
 ## [‹ₛ¥ᵥ›  Simple OGM (standard; HD/SD)](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file) 
