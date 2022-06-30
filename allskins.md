@@ -18,34 +18,34 @@ Just 'cause, slightly based off DTMC Freedom Dive
 ![Imgur](https://imgur.com/JA3mOoL.png)
 ________________________________________________________________________________________
 
-## [Simple OGM (standard; HD/SD)](https://www.mediafire.com/file/j8pypsiv45hwrtx/‹ₛ¥ᵥ›+Inabakumori+-+O+K+U.osk/file) 
+## [‹ₛ¥ᵥ› Inabakumori - O K U (standard; HD/SD)](https://www.mediafire.com/file/j8pypsiv45hwrtx/‹ₛ¥ᵥ›+Inabakumori+-+O+K+U.osk/file) 
 O K U's request, Inabakumori skin, based off Bacon Boi blue skin
 ![Imgur](https://imgur.com/KEu5ra3.png)
 ![Imgur](https://imgur.com/AqNQ7te.png)
 
 
-## [Simple OGM (standard; HD/SD)](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file) 
+## [‹ₛ¥ᵥ›  Simple OGM (standard; HD/SD)](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file) 
 OGM_Ofiicial's request, Highschool DXD skin
 ![Imgur](https://imgur.com/e03HWa3.png)
 ![Imgur](https://imgur.com/AqNQ7te.png)
 
-## [Sayo (« Nightlocke ») (standard; HD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
+## [‹ₛ¥ᵥ›  Sayo (« Nightlocke ») (standard; HD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
 Nightlocke's request, Hikawa Sayo skin
 ![Imgur](https://imgur.com/MsEkO4X.png)
 ![Imgur](https://imgur.com/VrykVal.png)
 
-## [Sai (standard; HD)](https://www.mediafire.com/file/ojxnxksr1swjmqh/‹ₛ¥ᵥ›+Sai.osk/file) 
+## [‹ₛ¥ᵥ› Sai (standard; HD)](https://www.mediafire.com/file/ojxnxksr1swjmqh/‹ₛ¥ᵥ›+Sai.osk/file) 
 Requsted by Sai1kou
 ![Imgur](https://imgur.com/iaajVLd.png)
 ![Imgur](https://imgur.com/E3FUWjV.png)
 
 
-## [Holo Apples (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/‹ₛ¥ᵥ›+Holo+Apples.osk/file) 
+## [‹ₛ¥ᵥ› Holo Apples (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/‹ₛ¥ᵥ›+Holo+Apples.osk/file) 
 Requsted by DamnKid
 ![Imgur](https://imgur.com/b1p70gJ.png)
 ![Imgur](https://imgur.com/l5Jn52l.png)
 
-## [Purrfect Snow (standard; HD)](https://www.mediafire.com/file/mxi6t4cnyf3hpwj/Purrfect_Snowday.osk/file)
+## [‹ₛ¥ᵥ› Purrfect Snow (standard; HD)](https://www.mediafire.com/file/mxi6t4cnyf3hpwj/Purrfect_Snowday.osk/file)
 Made just 'cause
 ![Imgur](https://imgur.com/HEn4zlA.png)
 ![Imgur](https://imgur.com/77U67uJ.png)
