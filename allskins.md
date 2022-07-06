@@ -9,7 +9,7 @@ Let me know if there's an issue with this page and I will fix it
 
 
 If a skin is missing (and I'm not actively working on it) please let me know.
-
+My skin template: https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file
 ________________________________________________________________________________________
 Current WIP:
 ## [‹ₛ¥ᵥ› STMC Mani (standard; HD)](https://www.mediafire.com/file/ak84j2qk4d81cu6/‹ₛ¥ᵥ›+STMC+Mani.osk/file) 
