@@ -19,7 +19,7 @@ Just 'cause, slightly based off DTMC Freedom Dive
 ![Imgur](https://imgur.com/JA3mOoL.png)
 ________________________________________________________________________________________
 
-## [‹ₛ¥ᵥ› ShyLily 《Xiediacee》 (standard; HD/SD)](https://www.mediafire.com/file/j8pypsiv45hwrtx/‹ₛ¥ᵥ›+Inabakumori+-+O+K+U.osk/file) 
+## [‹ₛ¥ᵥ› ShyLily 《Xiediacee》 (standard; HD/SD)](https://www.mediafire.com/file/iq3e2az3w5rp56c/‹ₛ¥ᵥ›+ShyLily+《Xiediacee》.osk/file) 
 Xiediacee's request, ShyLily skin, slightly based off Bacon Boi blue skin
 ![Imgur](https://imgur.com/gOUU0oa.png)
 (it has quickly dissapearing miss, 50s and 100s)
