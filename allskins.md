@@ -37,6 +37,11 @@ OGM_Ofiicial's request, Highschool DXD skin
 ![Imgur](https://imgur.com/e03HWa3.png)
 ![Imgur](https://imgur.com/AqNQ7te.png)
 
+## [‹ₛ¥ᵥ›  Simple Chocolita (standard; HD/SD)](
+Chocolita's request. Slider ends.
+![Imgur](https://imgur.com/VI4MwWp.png)
+![Imgur](https://imgur.com/YrcnKS0.png)
+
 ## [‹ₛ¥ᵥ›  Sayo (« Nightlocke ») (standard; HD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
 Nightlocke's request, Hikawa Sayo skin
 ![Imgur](https://imgur.com/MsEkO4X.png)
