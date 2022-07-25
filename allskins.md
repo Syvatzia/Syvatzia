@@ -10,7 +10,7 @@ Let me know if there's an issue with this page and I will fix it
 
 If a skin is missing (and I'm not actively working on it) please let me know.
 
-My skin template: https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file
+My skin template (updated 7/25/22): https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file
 ________________________________________________________________________________________
 New skin (7/21)
 ## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》 (standard; HD)](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
