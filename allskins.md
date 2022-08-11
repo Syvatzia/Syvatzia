@@ -12,14 +12,18 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 
 My skin template (updated 7/25/22): https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file
 ________________________________________________________________________________________
-New skin (7/21)
+https://www.mediafire.com/file/sytm9c2nfj5qw7u/‹ₛ¥ᵥ›+Blue+and+Pink+Aurmn.osk/file
+
+Currently working: ## [‹ₛ¥ᵥ› Blue and Pink <<Aurmn>> (standard; HD)](https://www.mediafire.com/file/sytm9c2nfj5qw7u/‹ₛ¥ᵥ›+Blue+and+Pink+Aurmn.osk/file) 
+Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
+________________________________________________________________________________________
+
 ## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》 (standard; HD)](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
 Made for Matt4132; gameplay based off Shield
 ![Imgur](https://imgur.com/L05Ha9C.png)
 ![Imgur](https://imgur.com/pJXMr85.png)
-________________________________________________________________________________________
 
-WIP
+maybe forever WIP
 ## [‹ₛ¥ᵥ› STMC Mani (standard; HD)](https://www.mediafire.com/file/ak84j2qk4d81cu6/‹ₛ¥ᵥ›+STMC+Mani.osk/file) 
 Just 'cause, slightly based off DTMC Freedom Dive
 ![Imgur](https://imgur.com/Eu7MQxF.png)
