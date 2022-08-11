@@ -14,7 +14,8 @@ My skin template (updated 7/25/22): https://www.mediafire.com/file/p8s0220thiv3k
 ________________________________________________________________________________________
 https://www.mediafire.com/file/sytm9c2nfj5qw7u/‹ₛ¥ᵥ›+Blue+and+Pink+Aurmn.osk/file
 
-Currently working: ## [‹ₛ¥ᵥ› Blue and Pink <<Aurmn>> (standard; HD)](https://www.mediafire.com/file/sytm9c2nfj5qw7u/‹ₛ¥ᵥ›+Blue+and+Pink+Aurmn.osk/file) 
+Currently working:
+## [‹ₛ¥ᵥ› Blue and Pink <<Aurmn>> (standard; HD)](https://www.mediafire.com/file/sytm9c2nfj5qw7u/‹ₛ¥ᵥ›+Blue+and+Pink+Aurmn.osk/file) 
 Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
 ________________________________________________________________________________________
 
