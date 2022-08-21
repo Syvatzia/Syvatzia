@@ -10,7 +10,7 @@ Let me know if there's an issue with this page and I will fix it
 
 If a skin is missing (and I'm not actively working on it) please let me know.
 
-My skin template (updated 7/25/22): https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file
+My skin template (updated 8/21/22): https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file
 ________________________________________________________________________________________
 ## Currently working: [‹ₛ¥ᵥ› Blue and Pink 《Aurmn》 (standard; HD)](https://www.mediafire.com/file/sytm9c2nfj5qw7u/‹ₛ¥ᵥ›+Blue+and+Pink+Aurmn.osk/file) 
 Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
