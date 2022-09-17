@@ -23,6 +23,13 @@ Made for Smolcats; gameplay and hitsounds based off Tigera Project
 ![Imgur](https://imgur.com/Q8lQv2E.png)
 ![Imgur](https://imgur.com/Am0ccYR.png)
 
+## [‹ₛ¥ᵥ› Desert Tempest (standard, mania (k1-9), taiko, CTB; HD/SD)](https://www.mediafire.com/file/rnpvgppgwsauodv/‹ₛ¥ᵥ›+Desert+Tempest.osk/file) 
+Made for Chromatic Alteration skinning contest using deuteranopia palette
+![Imgur](https://imgur.com/osG6IaG.png)
+![Imgur](https://imgur.com/VgMCA56.png)
+![Imgur](https://imgur.com/hN0B69x.png)
+
+
 ## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》 (standard; HD)](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
 Made for Matt4132; gameplay based off Shield
 ![Imgur](https://imgur.com/L05Ha9C.png)
