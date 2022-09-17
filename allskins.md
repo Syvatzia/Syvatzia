@@ -59,6 +59,12 @@ OGM_Ofiicial's request, Highschool DXD skin
 ![Imgur](https://imgur.com/e03HWa3.png)
 ![Imgur](https://imgur.com/AqNQ7te.png)
 
+
+## [‹ₛ¥ᵥ› Blue and Pink 《Aurmn》 (standard; HD/SD)](https://www.mediafire.com/file/oh990wn8hsk975p/‹ₛ¥ᵥ›+Blue+and+Pink+《Aurmn》.osk/file) 
+OGM_Ofiicial's request, Highschool DXD skin
+![Imgur](https://imgur.com/uUCOsEM.png)
+![Imgur](https://imgur.com/qWLfeyr.png)
+
 ## [‹ₛ¥ᵥ›  Simple Chocolita (standard; HD/SD)](https://www.mediafire.com/file/ula9697fh94okuj/‹ₛ¥ᵥ›+Simple+Chocolita.osk/file)
 Chocolita's request. Slider ends.
 ![Imgur](https://imgur.com/VI4MwWp.png)
