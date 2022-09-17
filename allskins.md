@@ -1,5 +1,5 @@
 # Syvatzia's skins
-('just cause' and for twitch chat) 
+[Commissions](https://www.fiverr.com/share/eo1r1m) (you can also contact me directly over discord or on stream)
 
 Let me know if there's an issue with this page and I will fix it
 
