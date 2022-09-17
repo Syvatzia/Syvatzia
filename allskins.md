@@ -20,7 +20,7 @@ ________________________________________________________________________________
 
 ## [‹ₛ¥ᵥ› Tigera Night Mode 《Smolcats》(standard, mania (1-9k); HD/SD)](https://www.mediafire.com/file/qo4ekzca48sjoz2/‹ₛ¥ᵥ›+Tigera+Night+Mode+《Smolcats》.osk/file) 
 Made for Smolcats; gameplay and hitsounds based off Tigera Project
-![Imgur](https://imgur.com/sCxDbRa.png)
+![Imgur](https://imgur.com/Q8lQv2E.png)
 ![Imgur](https://imgur.com/Am0ccYR.png)
 
 ## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》 (standard; HD)](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
