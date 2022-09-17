@@ -19,6 +19,11 @@ Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
 ________________________________________________________________________________________
 
 ## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》 (standard; HD)](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
+Made for Smolcats; gameplay and hitsounds based off Tigera Project
+![Imgur](https://imgur.com/sCxDbRa.png)
+![Imgur](https://imgur.com/pJXMr85.png)
+
+## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》 (standard; HD)](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
 Made for Matt4132; gameplay based off Shield
 ![Imgur](https://imgur.com/L05Ha9C.png)
 ![Imgur](https://imgur.com/pJXMr85.png)
