@@ -14,8 +14,8 @@ My skin template (updated 8/21/22): https://www.mediafire.com/file/p8s0220thiv3k
 
 Template has README with tips and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled.
 ________________________________________________________________________________________
-## Currently working: [‹ₛ¥ᵥ› Blue and Pink 《Aurmn》 (standard; HD)](https://www.mediafire.com/file/sytm9c2nfj5qw7u/‹ₛ¥ᵥ›+Blue+and+Pink+Aurmn.osk/file) 
-Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
+## Currently working: NA
+
 ________________________________________________________________________________________
 
 ## [‹ₛ¥ᵥ› Tigera Night Mode 《Smolcats》(standard, mania (1-9k); HD/SD)](https://www.mediafire.com/file/qo4ekzca48sjoz2/‹ₛ¥ᵥ›+Tigera+Night+Mode+《Smolcats》.osk/file) 
@@ -61,7 +61,7 @@ OGM_Ofiicial's request, Highschool DXD skin
 
 
 ## [‹ₛ¥ᵥ› Blue and Pink 《Aurmn》 (standard; HD/SD)](https://www.mediafire.com/file/oh990wn8hsk975p/‹ₛ¥ᵥ›+Blue+and+Pink+《Aurmn》.osk/file) 
-OGM_Ofiicial's request, Highschool DXD skin
+Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
 ![Imgur](https://imgur.com/uUCOsEM.png)
 ![Imgur](https://imgur.com/qWLfeyr.png)
 
