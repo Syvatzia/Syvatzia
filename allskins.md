@@ -29,6 +29,10 @@ Made for Chromatic Alteration skinning contest using deuteranopia palette
 ![Imgur](https://imgur.com/VgMCA56.png)
 ![Imgur](https://imgur.com/hN0B69x.png)
 
+## [‹ₛ¥ᵥ› Inactive Poondas 《InactiveUser》(standard, mania; HD/SD)](https://www.mediafire.com/file/fyqi0izp9lq0c3f/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Inactive_Poondas_%25E3%2580%258AInactiveUser%25E3%2580%258B.osk/file) 
+Made for InactiveUser; gameplay based off Whitecat 2.0, hitsounds from Whitecat 1.0
+![Imgur](https://imgur.com/s9FuAIg.png)
+![Imgur](https://imgur.com/11OwbsP.png)
 
 ## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》 (standard; HD)](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
 Made for Matt4132; gameplay based off Shield
