@@ -15,7 +15,7 @@ My skin template (updated 8/21/22): https://www.mediafire.com/file/p8s0220thiv3k
 Template has README with tips and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled.
 ________________________________________________________________________________________
 ## [Currently working: Purple fox (Xotty's skin insparation)](https://www.mediafire.com/file/ufal2090v494syz/‹ₛ¥ᵥ›+Purple+Moon.osk/file)
-![Imgur](https://imgur.com/GYZrZlr.png)
+![Imgur](https://imgur.com/SioAeE8.png)
 
 ________________________________________________________________________________________
 
