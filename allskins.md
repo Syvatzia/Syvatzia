@@ -8,16 +8,20 @@
 
 If a skin is missing (and I'm not actively working on it) please let me know.
 
-Current skin count: 26
+Current skin count: 27
 
 My skin template (updated 8/21/22): https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file
 
 Template has README with tips and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled.
 ________________________________________________________________________________________
-## [Currently working: Purple Moon (Xotty's skin insparation)](https://www.mediafire.com/file/293mow8k2gmcr9x/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Azeria.osk/file)
+## [Current main: Purple Moon (Xotty's skin insparation)](https://www.mediafire.com/file/293mow8k2gmcr9x/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Azeria.osk/file)
 ![Imgur](https://imgur.com/SioAeE8.png)
-
 ________________________________________________________________________________________
+
+## [‹ₛ¥ᵥ› CriKat《BobbyZlich》(standard; HD/SD)](https://www.mediafire.com/file/qo4ekzca48sjoz2/‹ₛ¥ᵥ›+Tigera+Night+Mode+《Smolcats》.osk/file) 
+Made for Smolcats; gameplay and hitsounds based off Tigera Project
+![Imgur](https://imgur.com/Q8lQv2E.png)
+![Imgur](https://imgur.com/Am0ccYR.png)
 
 ## [‹ₛ¥ᵥ› Tigera Night Mode 《Smolcats》(standard, mania (1-9k); HD/SD)](https://www.mediafire.com/file/qo4ekzca48sjoz2/‹ₛ¥ᵥ›+Tigera+Night+Mode+《Smolcats》.osk/file) 
 Made for Smolcats; gameplay and hitsounds based off Tigera Project
