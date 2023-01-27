@@ -18,7 +18,7 @@ ________________________________________________________________________________
 ![Imgur](https://imgur.com/SioAeE8.png)
 ________________________________________________________________________________________
 
-## [‹ₛ¥ᵥ› CriKat《BobbyZlich》(standard; HD/SD)](https://www.mediafire.com/file/qo4ekzca48sjoz2/‹ₛ¥ᵥ›+Tigera+Night+Mode+《Smolcats》.osk/file) 
+## [‹ₛ¥ᵥ› CriKat《BobbyZlich》(standard; HD/SD)](https://www.mediafire.com/file/po6rxkvnrgz89mz/‹ₛ¥ᵥ›+CrikCat+《BobbyZlich》.osk/file) 
 Made for BobbyZlich, based off WhiteCat, sliders and combo 1s are colored.
 ![Imgur](https://imgur.com/dRE2ouP.png)
 ![Imgur](https://imgur.com/vvlj4xm.png)
