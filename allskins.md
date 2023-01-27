@@ -19,9 +19,9 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 
 ## [‹ₛ¥ᵥ› CriKat《BobbyZlich》(standard; HD/SD)](https://www.mediafire.com/file/qo4ekzca48sjoz2/‹ₛ¥ᵥ›+Tigera+Night+Mode+《Smolcats》.osk/file) 
-Made for Smolcats; gameplay and hitsounds based off Tigera Project
-![Imgur](https://imgur.com/Q8lQv2E.png)
-![Imgur](https://imgur.com/Am0ccYR.png)
+Made for BobbyZlich, based off WhiteCat, sliders and combo 1s are colored.
+![Imgur](https://imgur.com/dRE2ouP.png)
+![Imgur](https://imgur.com/vvlj4xm.png)
 
 ## [‹ₛ¥ᵥ› Tigera Night Mode 《Smolcats》(standard, mania (1-9k); HD/SD)](https://www.mediafire.com/file/qo4ekzca48sjoz2/‹ₛ¥ᵥ›+Tigera+Night+Mode+《Smolcats》.osk/file) 
 Made for Smolcats; gameplay and hitsounds based off Tigera Project
