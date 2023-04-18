@@ -14,9 +14,9 @@ My skin template (updated 8/21/22): https://www.mediafire.com/file/p8s0220thiv3k
 
 Template has README with tips and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled.
 ________________________________________________________________________________________
-## [Current main: Purple Moon (Xotty's skin insparation)](https://www.mediafire.com/file/293mow8k2gmcr9x/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Azeria.osk/file)
-![Imgur](https://imgur.com/SioAeE8.png)
 ________________________________________________________________________________________
+## [FoxMoon (Xotty's skin insparation)](https://www.mediafire.com/file/asnnsai3nt5v9nn/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_FoxMoon.osk/file)
+![Imgur](https://imgur.com/SioAeE8.png)
 
 ## [‹ₛ¥ᵥ› CriKat《BobbyZlich》(standard; HD/SD)](https://www.mediafire.com/file/po6rxkvnrgz89mz/‹ₛ¥ᵥ›+CrikCat+《BobbyZlich》.osk/file) 
 Made for BobbyZlich, based off WhiteCat, sliders and combo 1s are colored.
