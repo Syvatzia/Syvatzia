@@ -10,7 +10,7 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 
 Current skin count: 27
 
-The [skin template](https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file) I use. Has README with tips and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled.
+My [skin template](https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file). Has README with tips and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled.
 ________________________________________________________________________________________
 ________________________________________________________________________________________
 ## [FoxMoon (Xotty's skin insparation)](https://www.mediafire.com/file/asnnsai3nt5v9nn/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_FoxMoon.osk/file)
