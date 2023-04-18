@@ -11,7 +11,6 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 Current skin count: 27
 
 My skin template (updated 8/21/22): https://www.mediafire.com/file/p8s0220thiv3kl2/‹ₛ¥ᵥ›+skin+template.osk/file
-
 Template has README with tips and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled.
 ________________________________________________________________________________________
 ________________________________________________________________________________________
