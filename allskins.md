@@ -1,5 +1,5 @@
 # Syvatzia's skins
-[Commissions](https://www.fiverr.com/share/eo1r1m) (you can also contact me directly over discord or on stream)
+Commissions: Get in contact with me on Discord (Syvatzia#4549), OSU! (Syvatzia) and/or Twtich (Syvatzia)
 
 * [**Syvatzia's Discord**](https://discord.gg/ftrQeYRuZT)
 * [**Syvatzia's Twitch**](https://www.twitch.tv/Syvatzia)
