@@ -1,5 +1,5 @@
 # Syvatzia's skins
-Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](https://osu.ppy.sh/users/19082107) and/or [Twtich](https://www.twitch.tv/Syvatzia)
+Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](https://osu.ppy.sh/users/19082107), or [Twtich](https://www.twitch.tv/Syvatzia)!
 
 
 
