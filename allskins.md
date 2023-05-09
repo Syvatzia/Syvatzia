@@ -8,11 +8,19 @@ Commissions: Get in contact with me on Discord (Syvatzia#4549), OSU! (Syvatzia) 
 
 If a skin is missing (and I'm not actively working on it) please let me know.
 
-Current skin count: 27
+Current skin count: 29
 
 My [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file). Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled. [Updated 5/04/23]
 ________________________________________________________________________________________
 ________________________________________________________________________________________
+
+## [‹ₛ¥ᵥ› Celestine Kaleidoscope《UncleDezzz》(standard; HD/SD)](https://www.mediafire.com/file/nu1lpp5ppjzd7nz/‹ₛ¥ᵥ›+Celestine+Kaleidoscope.osk/file)
+[‹ₛ¥ᵥ› Celestine Kaleidoscope DT《UncleDezzz》(standard; HD/SD)](https://www.mediafire.com/file/mbhidakp9k9sqxo/‹ₛ¥ᵥ›+Celestine+Kaleidoscope+DT.osk/file)
+Made for UncleDezzz, asthetics based off XooMoon.
+![Imgur](https://imgur.com/vHsjJZu.png)
+![Imgur](https://imgur.com/5UVtTko.png)
+![Imgur](https://imgur.com/vvlj4xm.png)
+
 ## [FoxMoon (Xotty's skin insparation)](https://www.mediafire.com/file/asnnsai3nt5v9nn/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_FoxMoon.osk/file)
 ![Imgur](https://imgur.com/SioAeE8.png)
 
