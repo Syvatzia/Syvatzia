@@ -15,11 +15,11 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 
 ## [‹ₛ¥ᵥ› Celestine Kaleidoscope《UncleDezzz》(standard; HD/SD)](https://www.mediafire.com/file/nu1lpp5ppjzd7nz/‹ₛ¥ᵥ›+Celestine+Kaleidoscope.osk/file)
-[‹ₛ¥ᵥ› Celestine Kaleidoscope DT《UncleDezzz》(standard; HD/SD)](https://www.mediafire.com/file/mbhidakp9k9sqxo/‹ₛ¥ᵥ›+Celestine+Kaleidoscope+DT.osk/file)
-Made for UncleDezzz, asthetics based off XooMoon.
+Made for UncleDezzz, asthetics based off XooMoon. 144FPS defult, 30FPS and no animation avalable in customization.
 ![Imgur](https://imgur.com/vHsjJZu.png)
+[‹ₛ¥ᵥ› Celestine Kaleidoscope DT《UncleDezzz》(standard; HD/SD)](https://www.mediafire.com/file/mbhidakp9k9sqxo/‹ₛ¥ᵥ›+Celestine+Kaleidoscope+DT.osk/file)
 ![Imgur](https://imgur.com/5UVtTko.png)
-![Imgur](https://imgur.com/vvlj4xm.png)
+![Imgur](https://imgur.com/Vh2t7CZ.png)
 
 ## [FoxMoon (Xotty's skin insparation)](https://www.mediafire.com/file/asnnsai3nt5v9nn/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_FoxMoon.osk/file)
 ![Imgur](https://imgur.com/SioAeE8.png)
