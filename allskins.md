@@ -11,7 +11,7 @@ My [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Ski
 ________________________________________________________________________________________
 ________________________________________________________________________________________
 
-## [‹ₛ¥ᵥ› We Kicked a Kid (United)《Icons of an Era》(standard/mania; HD/SD)]([https://www.mediafire.com/file/nu1lpp5ppjzd7nz/‹ₛ¥ᵥ›+Celestine+Kaleidoscope.osk/file](https://www.mediafire.com/file/fv1ul70sid1kvcp/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_We_Kicked_A_Kid_%2528United%2529.osk/file))
+## [‹ₛ¥ᵥ› We Kicked a Kid (United)《Icons of an Era》(standard/mania; HD/SD)](https://www.mediafire.com/file/fv1ul70sid1kvcp/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_We_Kicked_A_Kid_%2528United%2529.osk/file)
 Made for Icons of an Era skinning contest. 60FPS. Based off Our Stolen Theory - United
 ![Imgur](https://imgur.com/qqF4B0I.png)
 ![Imgur](https://imgur.com/XF88hCK.png)
