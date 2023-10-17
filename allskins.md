@@ -5,11 +5,28 @@ If a skin is missing (and I'm not actively working on it) please let me know.
 
 Current skin count: 30
 
-## [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file).
-Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labled. [Updated 5/04/23]
+## [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
+Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labeled. [Updated 5/04/23]
 ![Imgur](https://imgur.com/eSfZhjH.png)
 ________________________________________________________________________________________
 ________________________________________________________________________________________
+
+
+
+
+
+
+
+
+## [Azeria Svell (standard HD)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
+First skin I made
+![Imgur](https://imgur.com/Sash9Q9.jpg)
+
+________________________________________________________________________________________
+________________________________________________________________________________________
+
+
+
 
 ## ‹ₛ¥ᵥ› Nightfall《OGM》(standard)
 ![Imgur](https://imgur.com/LsViwyQ.png)
