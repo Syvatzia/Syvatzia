@@ -13,7 +13,7 @@ ________________________________________________________________________________
 
 ## [‹ₛ¥ᵥ› Blue and Pink 《Aurmn》 (standard; HD/SD)](https://www.mediafire.com/file/oh990wn8hsk975p/‹ₛ¥ᵥ›+Blue+and+Pink+《Aurmn》.osk/file) 
 Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
-![Imgur](https://imgur.com/cSPsZcK.png)
+![Imgur](https://imgur.com/4ATF7Oy.png)
 ![Imgur](https://imgur.com/4zchISP.png)
 
 ## [Azeria Svell (standard HD)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
