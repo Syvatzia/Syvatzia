@@ -10,19 +10,29 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 ![Imgur](https://imgur.com/eSfZhjH.png)
 ________________________________________________________________________________________
 ________________________________________________________________________________________
+《》
 
-## [SpankySauske (Standard HD)](https://www.mediafire.com/file/no1mag5ovy5b0d5/SpankySasuke.osk/file)
-Made for Spanky
+## [GetJinxed 《Dagaz》](https://www.mediafire.com/file/tq3xf5qyro81nms/GetJinxed.osk/file)
+![Imgur](https://imgur.com/HrGDM8j.png)
+![Imgur](https://imgur.com/Ql8hVQs.png)
+
+## [Vi 《Dagaz》](https://www.mediafire.com/file/0fbghy85jymiimw/Vi_%2528WIP%2529.osk/file)
+![Imgur](https://imgur.com/HrGDM8j.png)
+![Imgur](https://imgur.com/prWOeTK.png)
+
+## [EnemyStand 《Chocolita》](https://www.mediafire.com/file/6x840gdsydkvxie/EnemyStand+2021.osk/file)
+![Imgur](https://imgur.com/CdkedAr.png)
+![Imgur](https://imgur.com/o0xbZxG.png)
+
+## [SpankySauske 《Spanky》](https://www.mediafire.com/file/no1mag5ovy5b0d5/SpankySasuke.osk/file)
 ![Imgur](https://imgur.com/oCw7SAV.png)
 ![Imgur](https://imgur.com/RnGIwF7.png)
 
-## [‹ₛ¥ᵥ› Blue and Pink 《Aurmn](https://www.mediafire.com/file/oh990wn8hsk975p/‹ₛ¥ᵥ›+Blue+and+Pink+《Aurmn》.osk/file) 
-Made for Aurmn; instantly disappearing hitcircles - assets from Sai and Bongocat
+## [Blue and Pink 《Aurmn》](https://www.mediafire.com/file/oh990wn8hsk975p/‹ₛ¥ᵥ›+Blue+and+Pink+《Aurmn》.osk/file) 
 ![Imgur](https://imgur.com/4ATF7Oy.png)
 ![Imgur](https://imgur.com/4zchISP.png)
 
-## [Azeria Svell (standard HD)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
-First skin I made
+## [Azeria Svell 《Syvatzia》](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
 ![Imgur](https://imgur.com/Nxt3Mlh.png)
 ![Imgur](https://imgur.com/Sash9Q9.jpg)
 
@@ -169,25 +179,12 @@ Made for MTM
 ![Imgur](https://imgur.com/cnPbjQi.png)
 ![Imgur](https://imgur.com/9Pc7b1F.png)
 
-## [GetJinxed (Standard HD)](https://www.mediafire.com/file/tq3xf5qyro81nms/GetJinxed.osk/file)
-Made for Dagaz
-![Imgur](https://imgur.com/291JVK6.png)
-![Imgur](https://imgur.com/Ql8hVQs.png)
-
-## [Vi (Standard HD)](https://www.mediafire.com/file/0fbghy85jymiimw/Vi_%2528WIP%2529.osk/file)
-Made for Dagaz, goes with Jinx
-![Imgur](https://imgur.com/wnpiHy7.png)
-![Imgur](https://imgur.com/okPw1pQ.png)
 
 ## [DNDOSU (Standard... mostly done... HD)](https://www.mediafire.com/file/446zohacyeccufs/DND_%2528WIP%2529.osk/file)
 Made for Dagaz/Fiend
 ![Imgur](https://imgur.com/RfJeKgI.jpg)
 ![Imgur](https://imgur.com/B1h4RAH.png)
 
-## [EnemyStand (Standard flaslight skin HD)](https://www.mediafire.com/file/6x840gdsydkvxie/EnemyStand+2021.osk/file)
-Made for Chocolita
-![Imgur](https://imgur.com/06cU0II.jpg)
-![Imgur](https://imgur.com/YrKNxYj.png)
 
 
 **- - - -Slight changes in skins already listed- - - -**
