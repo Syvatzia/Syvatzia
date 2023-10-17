@@ -11,13 +11,19 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 ________________________________________________________________________________________
 ________________________________________________________________________________________
 
-## [‹ₛ¥ᵥ› Blue and Pink 《Aurmn》 (standard; HD/SD)](https://www.mediafire.com/file/oh990wn8hsk975p/‹ₛ¥ᵥ›+Blue+and+Pink+《Aurmn》.osk/file) 
-Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
+## [SpankySauske (Standard HD)](https://www.mediafire.com/file/no1mag5ovy5b0d5/SpankySasuke.osk/file)
+Made for Spanky
+![Imgur](https://imgur.com/oCw7SAV.png)
+![Imgur](https://imgur.com/RnGIwF7.png)
+
+## [‹ₛ¥ᵥ› Blue and Pink 《Aurmn](https://www.mediafire.com/file/oh990wn8hsk975p/‹ₛ¥ᵥ›+Blue+and+Pink+《Aurmn》.osk/file) 
+Made for Aurmn; instantly disappearing hitcircles - assets from Sai and Bongocat
 ![Imgur](https://imgur.com/4ATF7Oy.png)
 ![Imgur](https://imgur.com/4zchISP.png)
 
 ## [Azeria Svell (standard HD)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
 First skin I made
+![Imgur](https://imgur.com/Nxt3Mlh.png)
 ![Imgur](https://imgur.com/Sash9Q9.jpg)
 
 ________________________________________________________________________________________
@@ -98,11 +104,6 @@ OGM_Ofiicial's request, Highschool DXD skin
 ![Imgur](https://imgur.com/AqNQ7te.png)
 
 
-## [‹ₛ¥ᵥ› Blue and Pink 《Aurmn》 (standard; HD/SD)](https://www.mediafire.com/file/oh990wn8hsk975p/‹ₛ¥ᵥ›+Blue+and+Pink+《Aurmn》.osk/file) 
-Made for Aurmn; instatnly dissapearing hitcircles assets from Sai and Bongocat
-![Imgur](https://imgur.com/uUCOsEM.png)
-![Imgur](https://imgur.com/qWLfeyr.png)
-
 ## [‹ₛ¥ᵥ›  Simple Chocolita (standard; HD/SD)](https://www.mediafire.com/file/ula9697fh94okuj/‹ₛ¥ᵥ›+Simple+Chocolita.osk/file)
 Chocolita's request. Slider ends.
 ![Imgur](https://imgur.com/VI4MwWp.png)
@@ -156,11 +157,6 @@ Made for MarsBar
 ![Imgur](https://imgur.com/zhSbEs5.png)
 ![Imgur](https://imgur.com/RI6NI8v.png)
 
-## [Azeria Svell (standard HD)](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
-First skin I made
-![Imgur](https://imgur.com/aNcJ0PB.jpg)
-![Imgur](https://imgur.com/5PixlLx.png)
-
 ## [j̵͐͂u̵̍͘s̵͗̚t̸̊̌ ̵ m̵͋͆ō̶͐ṅ̴͛i̵͆̆ǩ̶̆á̵̓ ((standard, taiko, mania, ctb HD)](https://www.mediafire.com/file/lu382vnowf6chap/%2523_j%25CC%25B5%25CD%2590%25CD%2582u%25CC%25B5%25CC%258D%25CD%2598s%25CC%25B5%25CD%2597%25CC%259At%25CC%25B8%25CC%258A%25CC%258C_%25CC%25B5_m%25CC%25B5%25CD%258B%25CD%2586%25C5%258D%25CC%25B6%25CD%2590%25E1%25B9%2585%25CC%25B4%25CD%259Bi%25CC%25B5%25CD%2586%25CC%2586%25C7%25A9%25CC%25B6%25CC%2586%25C3%25A1%25CC%25B5%25CC%2593.osk/file)
 Made for Public-Sama
 ![Imgur](https://imgur.com/7YjkGLw.png)
@@ -193,10 +189,6 @@ Made for Chocolita
 ![Imgur](https://imgur.com/06cU0II.jpg)
 ![Imgur](https://imgur.com/YrKNxYj.png)
 
-## [SpankySauske (Standard HD)](https://www.mediafire.com/file/no1mag5ovy5b0d5/SpankySasuke.osk/file)
-Made for Spanky
-![Imgur](https://imgur.com/BCVh4TB.jpg)
-![Imgur](https://imgur.com/NkNMlF2.png)
 
 **- - - -Slight changes in skins already listed- - - -**
 ## [Holo Apples - No acc during play (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Holo_Apples.osk/file) 
