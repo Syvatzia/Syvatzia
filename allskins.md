@@ -10,7 +10,10 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 ![Imgur](https://imgur.com/eSfZhjH.png)
 ________________________________________________________________________________________
 ________________________________________________________________________________________
-《》
+
+## [Neon Fox 《MTM》](https://www.mediafire.com/file/4fn0atem8hq31ak/NeonFox.osk/file)
+![Imgur](https://imgur.com/4ATF7Oy.png)
+![Imgur](https://imgur.com/yxKDWjt.png)
 
 ## [GetJinxed 《Dagaz》](https://www.mediafire.com/file/tq3xf5qyro81nms/GetJinxed.osk/file)
 ![Imgur](https://imgur.com/6slkdg1.png)
@@ -174,10 +177,6 @@ Made for Public-Sama
 Modes:
 ![Imgur](https://imgur.com/zvmVgJu.png)
 
-## [Neon Fox (Standard HD)](https://www.mediafire.com/file/4fn0atem8hq31ak/NeonFox.osk/file)
-Made for MTM
-![Imgur](https://imgur.com/cnPbjQi.png)
-![Imgur](https://imgur.com/9Pc7b1F.png)
 
 
 ## [DNDOSU (Standard... mostly done... HD)](https://www.mediafire.com/file/446zohacyeccufs/DND_%2528WIP%2529.osk/file)
