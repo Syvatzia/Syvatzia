@@ -13,11 +13,11 @@ ________________________________________________________________________________
 《》
 
 ## [GetJinxed 《Dagaz》](https://www.mediafire.com/file/tq3xf5qyro81nms/GetJinxed.osk/file)
-![Imgur](https://imgur.com/HrGDM8j.png)
-![Imgur](https://imgur.com/Ql8hVQs.png)
+![Imgur](https://imgur.com/6slkdg1.png)
+![Imgur](https://imgur.com/u05dkm4.png)
 
 ## [Vi 《Dagaz》](https://www.mediafire.com/file/0fbghy85jymiimw/Vi_%2528WIP%2529.osk/file)
-![Imgur](https://imgur.com/HrGDM8j.png)
+![Imgur](https://imgur.com/6slkdg1.png)
 ![Imgur](https://imgur.com/prWOeTK.png)
 
 ## [EnemyStand 《Chocolita》](https://www.mediafire.com/file/6x840gdsydkvxie/EnemyStand+2021.osk/file)
