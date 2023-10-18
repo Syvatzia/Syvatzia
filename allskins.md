@@ -14,10 +14,9 @@ ________________________________________________________________________________
 
 ## [Kimi No Na Wa (standard, taiko, mania, ctb HD/SD)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
 Made just 'cause (instantly dissapearing hitcircles)
-![Imgur](https://i.imgur.com/NsOHzy6.png)
+![Imgur](https://imgur.com/Em47IRA.png)
 ![Imgur](https://imgur.com/vtzMXM6.png)
-Modes:
-![Imgur](https://imgur.com/9AZ09cg.png)
+![Imgur](https://imgur.com/uFGoLzW.png)
 
 ## [Sakura 《MarsBar》](https://www.mediafire.com/file/vf4ty56nle8kthc/Sakura.osk/file)
 ![Imgur](https://imgur.com/Nxt3Mlh.png)
