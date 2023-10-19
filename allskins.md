@@ -12,8 +12,7 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
-## [Kimi No Na Wa (standard, taiko, mania, ctb HD/SD)](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
-Made just 'cause (instantly dissapearing hitcircles)
+## [Kimi No Na Wa 《Syvatzia 》](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
 ![Imgur](https://imgur.com/Em47IRA.png)
 ![Imgur](https://imgur.com/vtzMXM6.png)
 ![Imgur](https://imgur.com/uFGoLzW.png)
