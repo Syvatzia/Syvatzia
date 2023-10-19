@@ -12,16 +12,16 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
-## [SGFL《》(standard; HD/SD)](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
-Requested by SGFL (instantly dissapearing hitcircles [default HP bakground available])
+
+## [SGFL《SGFL》](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
 ![Imgur](https://imgur.com/ej14hma.png)
-![Imgur](https://imgur.com/wveNp0X.png)
+![Imgur](https://imgur.com/fhvoNKT.png)
 
 ## [Rplace《Syvatzia》](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 ![Imgur](https://imgur.com/HX4HlzM.png)
 ![Imgur](https://imgur.com/e5Xjr9j.png)
 
-## [Kimi No Na Wa 《Syvatzia 》](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
+## [Kimi No Na Wa 《Syvatzia》](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
 ![Imgur](https://imgur.com/Em47IRA.png)
 ![Imgur](https://imgur.com/vtzMXM6.png)
 ![Imgur](https://imgur.com/uFGoLzW.png)
