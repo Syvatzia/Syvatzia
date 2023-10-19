@@ -15,7 +15,6 @@ ________________________________________________________________________________
 ## [Dango Daikazoku《HiveWire》(standard; HD/SD)](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
 ![Imgur](https://imgur.com/u5Uc9fV.png)
 ![Imgur](https://imgur.com/uKazxep.png)
-![Image](https://media.discordapp.net/attachments/777253947995586564/1164675863250489485/Dango_Over.png?ex=654413ec&is=65319eec&hm=2e0eb9e40cad39c41e37dd7c9ed02126fd204e96d47fd4d1d5bd656a6d5a7e39&=&width=1002&height=700.png)
 
 ## [SGFL《SGFL》](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
 ![Imgur](https://imgur.com/ej14hma.png)
