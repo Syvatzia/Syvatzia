@@ -11,9 +11,11 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 ________________________________________________________________________________________
 ________________________________________________________________________________________
 《》
-## [Rplace (standard HD/SD)](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
+
+
+## [Rplace《Syvatzia》](https://www.mediafire.com/file/iqjbxx4j524wgvz/RPlace.osk/file)
 ![Imgur](https://imgur.com/656t5eI.png)
-![Imgur](https://imgur.com/W1IUZRB.png)
+![Imgur](https://imgur.com/vcVOTql.png)
 
 ## [Kimi No Na Wa 《Syvatzia 》](https://www.mediafire.com/file/bq83n2t60rtwx7w/Kimi_No_Na_Wa.osk/file)
 ![Imgur](https://imgur.com/Em47IRA.png)
