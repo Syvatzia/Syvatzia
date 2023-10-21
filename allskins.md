@@ -18,7 +18,7 @@ ________________________________________________________________________________
 ![Imgur](https://i.imgur.com/jmh3T24.png)
 ![Imgur](https://i.imgur.com/BZTiZTI.png)
 [Celestine Kaleidoscope DT《UncleDezzz》](https://www.mediafire.com/file/mbhidakp9k9sqxo/‹ₛ¥ᵥ›+Celestine+Kaleidoscope+DT.osk/file)
-![Imgur](https://i.imgur.com/J738VDw.png)
+![Imgur](https://i.imgur.com/y8B7iHc.png)
 
 ## [CriKat《BobbyZlich》](https://www.mediafire.com/file/po6rxkvnrgz89mz/‹ₛ¥ᵥ›+CrikCat+《BobbyZlich》.osk/file) 
 ![Imgur](https://imgur.com/2rHRNDQ.png)
