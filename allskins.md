@@ -14,8 +14,12 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
+## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
+![Imgur](https://imgur.com/oCw7SAV.png)
+![Imgur](https://imgur.com/3mYAt4x.png)
+
 ## [ShyLily 《Xiediacee》](https://www.mediafire.com/file/iq3e2az3w5rp56c/‹ₛ¥ᵥ›+ShyLily+《Xiediacee》.osk/file) 
-![Imgur](https://imgur.com/IPgwO4m.png)
+![Imgur](https://imgur.com/a5ZMon4.png)
 ![Imgur](https://imgur.com/ziM9OUM.png)
 
 ## [Inabakumori 《O K U》](https://www.mediafire.com/file/j8pypsiv45hwrtx/‹ₛ¥ᵥ›+Inabakumori+-+O+K+U.osk/file) 
@@ -136,27 +140,17 @@ Bright hitcircles, combo colors
 ![Imgur](https://imgur.com/s9FuAIg.png)
 ![Imgur](https://imgur.com/11OwbsP.png)
 
-## [‹ₛ¥ᵥ› Bongo Cat 《Matt4132》 (standard; HD)](https://www.mediafire.com/file/cefsz0kgndsgbia/‹ₛ¥ᵥ›+Bongo+Cat+《Matt4132》.osk/file) 
-Made for Matt4132; gameplay based off Shield
-![Imgur](https://imgur.com/L05Ha9C.png)
-![Imgur](https://imgur.com/pJXMr85.png)
+
+
+
+
+-----------------------------------
 
 maybe forever WIP
 ## [‹ₛ¥ᵥ› STMC Mani (standard; HD)](https://www.mediafire.com/file/ak84j2qk4d81cu6/‹ₛ¥ᵥ›+STMC+Mani.osk/file) 
 Just 'cause, slightly based off DTMC Freedom Dive
 ![Imgur](https://imgur.com/Eu7MQxF.png)
 ![Imgur](https://imgur.com/JA3mOoL.png)
-
-
-
-
-
-
-
-
-
-
------------------------------------
 
 ## [‹ₛ¥ᵥ›  Simple Chocolita (standard; HD/SD)](https://www.mediafire.com/file/ula9697fh94okuj/‹ₛ¥ᵥ›+Simple+Chocolita.osk/file)
 Chocolita's request. Slider ends.
