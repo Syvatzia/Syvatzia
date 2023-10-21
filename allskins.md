@@ -14,6 +14,11 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
+
+## Nightfall《OGM》    -     Private
+![Imgur](https://imgur.com/I3rvD8R.png)
+![Imgur](https://i.imgur.com/5Jquhjw.png)
+
 ## [‹ₛ¥ᵥ› We Kicked a Kid (United)《Icons of an Era Contest Skin》](https://www.mediafire.com/file/fv1ul70sid1kvcp/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_We_Kicked_A_Kid_%2528United%2529.osk/file)
 ![Imgur](https://i.imgur.com/VymjDEI.png)
 ![Imgur](https://i.imgur.com/OcMIcoe.png)
@@ -122,12 +127,7 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 ________________________________________________________________________________________
 
-
-
-
-## ‹ₛ¥ᵥ› Nightfall《OGM》(standard)
-![Imgur](https://imgur.com/LsViwyQ.png)
-
+## WIP AND MISC/OLD SKINS
 
 -----------------------------------
 ## [FoxMoon (Xotty's skin insparation)](https://www.mediafire.com/file/asnnsai3nt5v9nn/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_FoxMoon.osk/file)
@@ -163,7 +163,6 @@ Made just 'cause
 Made for Dagaz/Fiend
 ![Imgur](https://imgur.com/RfJeKgI.jpg)
 ![Imgur](https://imgur.com/B1h4RAH.png)
-
 
 
 **- - - -Slight changes in skins already listed- - - -**
