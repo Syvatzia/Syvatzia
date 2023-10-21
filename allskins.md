@@ -13,12 +13,11 @@ ________________________________________________________________________________
 《》
 
 ## [Holo Apples《DamnKid》 (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/‹ₛ¥ᵥ›+Holo+Apples.osk/file) 
-Requsted by DamnKid
-![Imgur](https://imgur.com/b1p70gJ.png)
-![Imgur](https://imgur.com/l5Jn52l.png)
+![Imgur](https://imgur.com/IPgwO4m.png)
+![Imgur](https://imgur.com/oLXJlyH.png)
 
-## [Dango Daikazoku《HiveWire》(standard; HD/SD)](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
-![Imgur](https://imgur.com/u5Uc9fV.png)
+## [Dango Daikazoku《HiveWire》](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
+![Imgur](https://imgur.com/IPgwO4m.png)
 ![Imgur](https://imgur.com/lAzV3Bj.png)
 
 ## [SGFL《SGFL》](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
