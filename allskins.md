@@ -14,6 +14,10 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
+## [‹ₛ¥ᵥ› We Kicked a Kid (United)《Icons of an Era Contest Skin》](https://www.mediafire.com/file/fv1ul70sid1kvcp/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_We_Kicked_A_Kid_%2528United%2529.osk/file)
+![Imgur](https://i.imgur.com/VymjDEI.png)
+![Imgur](https://i.imgur.com/d4oyhup.png)
+
 ## [Celestine Kaleidoscope《UncleDezzz》](https://www.mediafire.com/file/nu1lpp5ppjzd7nz/‹ₛ¥ᵥ›+Celestine+Kaleidoscope.osk/file)
 ![Imgur](https://i.imgur.com/jmh3T24.png)
 ![Imgur](https://i.imgur.com/BZTiZTI.png)
@@ -28,7 +32,7 @@ ________________________________________________________________________________
 ![Imgur](https://imgur.com/I3rvD8R.png)
 ![Imgur](https://imgur.com/ZV8nqfu.png)
 
-## [Desert Tempest《Contest Skin》](https://www.mediafire.com/file/rnpvgppgwsauodv/‹ₛ¥ᵥ›+Desert+Tempest.osk/file) 
+## [Desert Tempest《Chromatic Alteration Contest Skin》](https://www.mediafire.com/file/rnpvgppgwsauodv/‹ₛ¥ᵥ›+Desert+Tempest.osk/file) 
 ![Imgur](https://imgur.com/yoscunI.png)
 ![Imgur](https://imgur.com/rt8RJFq.png)
 ![Imgur](https://imgur.com/hN0B69x.png)
@@ -123,13 +127,6 @@ ________________________________________________________________________________
 
 ## ‹ₛ¥ᵥ› Nightfall《OGM》(standard)
 ![Imgur](https://imgur.com/LsViwyQ.png)
-
-## [‹ₛ¥ᵥ› We Kicked a Kid (United)《Icons of an Era》(standard/mania; HD/SD)](https://www.mediafire.com/file/fv1ul70sid1kvcp/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_We_Kicked_A_Kid_%2528United%2529.osk/file)
-Made for Icons of an Era skinning contest. 60FPS. Based off Our Stolen Theory - United
-![Imgur](https://imgur.com/qqF4B0I.png)
-![Imgur](https://imgur.com/XF88hCK.png)
-
-
 
 
 -----------------------------------
