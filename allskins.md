@@ -4,6 +4,7 @@ Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT),
 If a skin is missing (and I'm not actively working on it) please let me know.
 
 Current Compleated Skins: 28
+
 WIP Skins: 4
 ________________________________________________________________________________________
 ## [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
@@ -12,6 +13,14 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 ________________________________________________________________________________________
 ________________________________________________________________________________________
 《》
+
+## [ShyLily 《Xiediacee》](https://www.mediafire.com/file/iq3e2az3w5rp56c/‹ₛ¥ᵥ›+ShyLily+《Xiediacee》.osk/file) 
+![Imgur](https://imgur.com/IPgwO4m.png)
+![Imgur](https://imgur.com/ziM9OUM.png)
+
+## [Inabakumori 《O K U》](https://www.mediafire.com/file/j8pypsiv45hwrtx/‹ₛ¥ᵥ›+Inabakumori+-+O+K+U.osk/file) 
+![Imgur](https://imgur.com/IPgwO4m.png)
+![Imgur](https://imgur.com/Ze2oVNn.png)
 
 ## [Simple OGM 《OGM_Ofiicial》 ](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file) 
 ![Imgur](https://imgur.com/IPgwO4m.png)
@@ -138,17 +147,10 @@ Just 'cause, slightly based off DTMC Freedom Dive
 ![Imgur](https://imgur.com/Eu7MQxF.png)
 ![Imgur](https://imgur.com/JA3mOoL.png)
 
-## [‹ₛ¥ᵥ› ShyLily 《Xiediacee》 (standard; HD/SD)](https://www.mediafire.com/file/iq3e2az3w5rp56c/‹ₛ¥ᵥ›+ShyLily+《Xiediacee》.osk/file) 
-Xiediacee's request, ShyLily skin, slightly based off Bacon Boi blue skin
-![Imgur](https://imgur.com/gOUU0oa.png)
-(it has quickly dissapearing miss, 50s and 100s)
-![Imgur](https://imgur.com/2QeDifL.png)
 
 
-## [‹ₛ¥ᵥ› Inabakumori - O K U (standard; HD/SD)](https://www.mediafire.com/file/j8pypsiv45hwrtx/‹ₛ¥ᵥ›+Inabakumori+-+O+K+U.osk/file) 
-O K U's request, Inabakumori skin, based off Bacon Boi blue skin
-![Imgur](https://imgur.com/lpoDWMv.png)
-![Imgur](https://imgur.com/dN6KPZg.png)
+
+
 
 
 
