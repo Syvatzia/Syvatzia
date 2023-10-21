@@ -3,7 +3,8 @@ Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT),
 
 If a skin is missing (and I'm not actively working on it) please let me know.
 
-Current skin count: 30
+Current Compleated Skins: 28
+WIP Skins: 4
 ________________________________________________________________________________________
 ## [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
 Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labeled. [Updated 5/04/23]
@@ -12,8 +13,12 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
-## [Holo Apples《DamnKid》 (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/‹ₛ¥ᵥ›+Holo+Apples.osk/file) 
-![Imgur](https://imgur.com/IPgwO4m.png)
+## [Sayo 《Nightlocke》](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
+![Imgur](https://imgur.com/oCw7SAV.png)
+![Imgur](https://imgur.com/U4Qypaq.png)
+
+## [Holo Apples《DamnKid》](https://www.mediafire.com/file/4dmrdbacbybpltx/‹ₛ¥ᵥ›+Holo+Apples.osk/file) 
+![Imgur](https://imgur.com/oCw7SAV.png)
 ![Imgur](https://imgur.com/oLXJlyH.png)
 
 ## [Dango Daikazoku《HiveWire》](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
@@ -153,20 +158,16 @@ Chocolita's request. Slider ends.
 ![Imgur](https://imgur.com/VI4MwWp.png)
 ![Imgur](https://imgur.com/YrcnKS0.png)
 
-## [‹ₛ¥ᵥ›  Sayo (« Nightlocke ») (standard; HD)](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
-Nightlocke's request, Hikawa Sayo skin
-![Imgur](https://imgur.com/MsEkO4X.png)
-![Imgur](https://imgur.com/VrykVal.png)
-
-## [‹ₛ¥ᵥ› Sai (standard; HD)](https://www.mediafire.com/file/ojxnxksr1swjmqh/‹ₛ¥ᵥ›+Sai.osk/file) 
-Requsted by Sai1kou
-![Imgur](https://imgur.com/iaajVLd.png)
-![Imgur](https://imgur.com/E3FUWjV.png)
 
 
 
 -----------------------------------
 
+
+## [‹ₛ¥ᵥ› Sai (standard; HD)](https://www.mediafire.com/file/ojxnxksr1swjmqh/‹ₛ¥ᵥ›+Sai.osk/file) 
+Requsted by Sai1kou
+![Imgur](https://imgur.com/iaajVLd.png)
+![Imgur](https://imgur.com/E3FUWjV.png)
 
 ## [‹ₛ¥ᵥ› Purrfect Snow (standard; HD)](https://www.mediafire.com/file/mxi6t4cnyf3hpwj/Purrfect_Snowday.osk/file)
 Made just 'cause
