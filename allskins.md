@@ -12,9 +12,6 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 ![Imgur](https://imgur.com/eSfZhjH.png)
 ________________________________________________________________________________________
 ________________________________________________________________________________________
-《》
-
-
 ## Nightfall《OGM》    -     Private
 ![Imgur](https://imgur.com/I3rvD8R.png)
 ![Imgur](https://i.imgur.com/5Jquhjw.png)
