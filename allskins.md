@@ -3,6 +3,8 @@ Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT),
 
 If a skin is missing (and I'm not actively working on it) please let me know.
 
+Currently working on: Spi
+
 Current Compleated Skins: 28
 
 WIP Skins: 4
@@ -146,7 +148,7 @@ Chocolita's request. Slider ends.
 ![Imgur](https://imgur.com/YrcnKS0.png)
 
 ## [‹ₛ¥ᵥ› Sai (standard; HD)](https://www.mediafire.com/file/ojxnxksr1swjmqh/‹ₛ¥ᵥ›+Sai.osk/file) 
-Requsted by Sai1kou
+Requested by Sai1kou
 ![Imgur](https://imgur.com/iaajVLd.png)
 ![Imgur](https://imgur.com/E3FUWjV.png)
 
@@ -164,7 +166,7 @@ Made for Dagaz/Fiend
 
 **- - - -Slight changes in skins already listed- - - -**
 ## [Holo Apples - No acc during play (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Holo_Apples.osk/file) 
-Requsted by DamnKid
+Requested by DamnKid
 ![Imgur](https://imgur.com/btvstXW.png)
 ![Imgur](https://imgur.com/l5Jn52l.png)
 
@@ -178,7 +180,7 @@ Requsted by DamnKid
 ## [Sakura - heart cursor (standard HD)](https://www.mediafire.com/file/21ed4tqsws777sh/SakuraHeart.osk/file)
 ![Imgur](https://imgur.com/jSJD3Ct.png)
 
-## [SpankySauske - running Naurto slider (Standard HD)](https://www.mediafire.com/file/3mzogrvvszjffjv/SpankySasuke+Naruto+slider.osk/file)
+## [SpankySauske - running Naruto slider (Standard HD)](https://www.mediafire.com/file/3mzogrvvszjffjv/SpankySasuke+Naruto+slider.osk/file)
 ![Imgur](https://imgur.com/UojuXpN.jpg)
 
 **Modified skins**
