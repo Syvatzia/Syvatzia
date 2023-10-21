@@ -13,6 +13,10 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
+## [Simple OGM 《OGM_Ofiicial》 ](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file) 
+![Imgur](https://imgur.com/IPgwO4m.png)
+![Imgur](https://imgur.com/1vkqoXb.png)
+
 ## [Sayo 《Nightlocke》](https://www.mediafire.com/file/e2193weep0ipwdw/‹ₛ¥ᵥ›+«+Nightlocke+»+(Sayo).osk/file) 
 ![Imgur](https://imgur.com/oCw7SAV.png)
 ![Imgur](https://imgur.com/U4Qypaq.png)
@@ -147,22 +151,15 @@ O K U's request, Inabakumori skin, based off Bacon Boi blue skin
 ![Imgur](https://imgur.com/dN6KPZg.png)
 
 
-## [‹ₛ¥ᵥ›  Simple OGM (standard; HD/SD)](https://www.mediafire.com/file/yv4df4xwdb1ax3u/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Simple_OGM.osk/file) 
-OGM_Ofiicial's request, Highschool DXD skin
-![Imgur](https://imgur.com/e03HWa3.png)
-![Imgur](https://imgur.com/AqNQ7te.png)
-
-
-## [‹ₛ¥ᵥ›  Simple Chocolita (standard; HD/SD)](https://www.mediafire.com/file/ula9697fh94okuj/‹ₛ¥ᵥ›+Simple+Chocolita.osk/file)
-Chocolita's request. Slider ends.
-![Imgur](https://imgur.com/VI4MwWp.png)
-![Imgur](https://imgur.com/YrcnKS0.png)
-
 
 
 
 -----------------------------------
 
+## [‹ₛ¥ᵥ›  Simple Chocolita (standard; HD/SD)](https://www.mediafire.com/file/ula9697fh94okuj/‹ₛ¥ᵥ›+Simple+Chocolita.osk/file)
+Chocolita's request. Slider ends.
+![Imgur](https://imgur.com/VI4MwWp.png)
+![Imgur](https://imgur.com/YrcnKS0.png)
 
 ## [‹ₛ¥ᵥ› Sai (standard; HD)](https://www.mediafire.com/file/ojxnxksr1swjmqh/‹ₛ¥ᵥ›+Sai.osk/file) 
 Requsted by Sai1kou
