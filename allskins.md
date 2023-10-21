@@ -12,9 +12,14 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
+## [Holo Apples《DamnKid》 (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/‹ₛ¥ᵥ›+Holo+Apples.osk/file) 
+Requsted by DamnKid
+![Imgur](https://imgur.com/b1p70gJ.png)
+![Imgur](https://imgur.com/l5Jn52l.png)
+
 ## [Dango Daikazoku《HiveWire》(standard; HD/SD)](https://www.mediafire.com/file/w95uv7qfm7xoqzu/%257E_HiveWire_Dango_Daikazoku_%257E.osk/file)
 ![Imgur](https://imgur.com/u5Uc9fV.png)
-![Imgur](https://imgur.com/uKazxep.png)
+![Imgur](https://imgur.com/lAzV3Bj.png)
 
 ## [SGFL《SGFL》](https://www.mediafire.com/file/dcc75gvvfwmhd9d/SGFL´s+Paradise.osk/file)
 ![Imgur](https://imgur.com/ej14hma.png)
@@ -63,7 +68,7 @@ ________________________________________________________________________________
 ![Imgur](https://imgur.com/4zchISP.png)
 
 ## [Azeria Svell 《Syvatzia》](https://www.mediafire.com/file/0hh6uapday8t0o5/Azeria_Svell.osk/file)
-![Imgur](https://imgur.com/Nxt3Mlh.png)
+![Imgur](https://imgur.com/oCw7SAV.png)
 ![Imgur](https://imgur.com/Sash9Q9.jpg)
 
 ________________________________________________________________________________________
@@ -160,22 +165,14 @@ Requsted by Sai1kou
 ![Imgur](https://imgur.com/E3FUWjV.png)
 
 
-## [‹ₛ¥ᵥ› Holo Apples (standard; HD)](https://www.mediafire.com/file/4dmrdbacbybpltx/‹ₛ¥ᵥ›+Holo+Apples.osk/file) 
-Requsted by DamnKid
-![Imgur](https://imgur.com/b1p70gJ.png)
-![Imgur](https://imgur.com/l5Jn52l.png)
+
+-----------------------------------
+
 
 ## [‹ₛ¥ᵥ› Purrfect Snow (standard; HD)](https://www.mediafire.com/file/mxi6t4cnyf3hpwj/Purrfect_Snowday.osk/file)
 Made just 'cause
 ![Imgur](https://imgur.com/HEn4zlA.png)
 ![Imgur](https://imgur.com/77U67uJ.png)
-
-
-
-
-
-
-
 
 
 ## [DNDOSU (Standard... mostly done... HD)](https://www.mediafire.com/file/446zohacyeccufs/DND_%2528WIP%2529.osk/file)
