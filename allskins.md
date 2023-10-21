@@ -16,7 +16,7 @@ ________________________________________________________________________________
 
 ## [‹ₛ¥ᵥ› We Kicked a Kid (United)《Icons of an Era Contest Skin》](https://www.mediafire.com/file/fv1ul70sid1kvcp/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_We_Kicked_A_Kid_%2528United%2529.osk/file)
 ![Imgur](https://i.imgur.com/VymjDEI.png)
-![Imgur](https://i.imgur.com/d4oyhup.png)
+![Imgur](https://i.imgur.com/OcMIcoe.png)
 
 ## [Celestine Kaleidoscope《UncleDezzz》](https://www.mediafire.com/file/nu1lpp5ppjzd7nz/‹ₛ¥ᵥ›+Celestine+Kaleidoscope.osk/file)
 ![Imgur](https://i.imgur.com/jmh3T24.png)
