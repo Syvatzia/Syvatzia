@@ -14,6 +14,16 @@ ________________________________________________________________________________
 ________________________________________________________________________________________
 《》
 
+## [Celestine Kaleidoscope《UncleDezzz》](https://www.mediafire.com/file/nu1lpp5ppjzd7nz/‹ₛ¥ᵥ›+Celestine+Kaleidoscope.osk/file)
+![Imgur](https://i.imgur.com/jmh3T24.png)
+![Imgur](https://i.imgur.com/BZTiZTI.png)
+[Celestine Kaleidoscope DT《UncleDezzz》](https://www.mediafire.com/file/mbhidakp9k9sqxo/‹ₛ¥ᵥ›+Celestine+Kaleidoscope+DT.osk/file)
+![Imgur](https://i.imgur.com/J738VDw.png)
+
+## [CriKat《BobbyZlich》](https://www.mediafire.com/file/po6rxkvnrgz89mz/‹ₛ¥ᵥ›+CrikCat+《BobbyZlich》.osk/file) 
+![Imgur](https://imgur.com/2rHRNDQ.png)
+![Imgur](https://imgur.com/6KYhPDY.png)
+
 ## [Tigera Night Mode《Smolcats》](https://www.mediafire.com/file/qo4ekzca48sjoz2/‹ₛ¥ᵥ›+Tigera+Night+Mode+《Smolcats》.osk/file) 
 ![Imgur](https://imgur.com/I3rvD8R.png)
 ![Imgur](https://imgur.com/ZV8nqfu.png)
@@ -119,22 +129,14 @@ Made for Icons of an Era skinning contest. 60FPS. Based off Our Stolen Theory - 
 ![Imgur](https://imgur.com/qqF4B0I.png)
 ![Imgur](https://imgur.com/XF88hCK.png)
 
-## [‹ₛ¥ᵥ› Celestine Kaleidoscope《UncleDezzz》(standard; HD/SD)](https://www.mediafire.com/file/nu1lpp5ppjzd7nz/‹ₛ¥ᵥ›+Celestine+Kaleidoscope.osk/file)
-Made for UncleDezzz, asthetics based off XooMoon. 144FPS defult, 30FPS and no animation avalable in customization.
-![Imgur](https://imgur.com/vHsjJZu.png)
-[‹ₛ¥ᵥ› Celestine Kaleidoscope DT《UncleDezzz》(standard; HD/SD)](https://www.mediafire.com/file/mbhidakp9k9sqxo/‹ₛ¥ᵥ›+Celestine+Kaleidoscope+DT.osk/file)
-![Imgur](https://imgur.com/j4IdsqI.png)
-![Imgur](https://imgur.com/Vh2t7CZ.png)
 
+
+
+-----------------------------------
 ## [FoxMoon (Xotty's skin insparation)](https://www.mediafire.com/file/asnnsai3nt5v9nn/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_FoxMoon.osk/file)
 ![Imgur](https://imgur.com/SioAeE8.png)
 
-## [‹ₛ¥ᵥ› CriKat《BobbyZlich》(standard; HD/SD)](https://www.mediafire.com/file/po6rxkvnrgz89mz/‹ₛ¥ᵥ›+CrikCat+《BobbyZlich》.osk/file) 
-Made for BobbyZlich, based off WhiteCat, sliders and combo 1s are colored.
-![Imgur](https://imgur.com/dRE2ouP.png)
-![Imgur](https://imgur.com/vvlj4xm.png)
 
------------------------------------
 ## [‹ₛ¥ᵥ› Inactive Poondas 《InactiveUser》(standard, mania; HD/SD)](https://www.mediafire.com/file/fyqi0izp9lq0c3f/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Inactive_Poondas_%25E3%2580%258AInactiveUser%25E3%2580%258B.osk/file) 
 Made for InactiveUser, based off WhiteCat 1.0
 
