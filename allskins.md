@@ -16,7 +16,7 @@ ________________________________________________________________________________
 
 ## [Desert Tempest《Contest Skin》](https://www.mediafire.com/file/rnpvgppgwsauodv/‹ₛ¥ᵥ›+Desert+Tempest.osk/file) 
 ![Imgur](https://imgur.com/yoscunI.png)
-![Imgur](https://imgur.com/VgMCA56.png)
+![Imgur](https://imgur.com/rt8RJFq.png)
 ![Imgur](https://imgur.com/hN0B69x.png)
 
 ## [Inactive Poondas HD《InactiveUser》](https://www.mediafire.com/file/m7a5lp5x079uhxq/‹ₛ¥ᵥ›+Inactive+Poondas+HD+《InactiveUser》.osk/file)
