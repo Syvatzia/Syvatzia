@@ -1,13 +1,12 @@
 # Syvatzia's skins
 Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](https://osu.ppy.sh/users/19082107), or [Twtich](https://www.twitch.tv/Syvatzia)!
 
-If a skin is missing (and I'm not actively working on it) please let me know.
+The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. Warning, these are not meant for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
 
-Currently working on: Spi
+Currently working on: The Sun The Moon The Star
 
-Current Compleated Skins: 28
-
-WIP Skins: 4
+Last Compleated: Spodai (11/27/23)
+Current Compleated Skins: 29
 
 ## [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
 Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labeled. [Updated 5/04/23]
@@ -24,7 +23,7 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 ## Nightfall《OGM》    -     Private
 ![Imgur](https://imgur.com/I3rvD8R.png)
 ![Imgur](https://i.imgur.com/5Jquhjw.png)
-________________________________________________________________________________________
+
 
 ## [‹ₛ¥ᵥ› We Kicked a Kid (United)《Icons of an Era Contest Skin》](https://www.mediafire.com/file/fv1ul70sid1kvcp/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_We_Kicked_A_Kid_%2528United%2529.osk/file)
 ![Imgur](https://i.imgur.com/VymjDEI.png)
