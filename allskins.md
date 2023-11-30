@@ -1,12 +1,13 @@
 # Syvatzia's skins
 Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](https://osu.ppy.sh/users/19082107), or [Twtich](https://www.twitch.tv/Syvatzia)!
 
-The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. ...these are not createde in mind for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
+The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. ...these are not created in mind for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
 
-Currently working on: The Sun The Moon The Star
+Current: The Sun The Moon The Star
+Previous: Spodai (11/27/23)
 
-Last Compleated: Spodai (11/27/23)
 Current finished skin count: 29
+
 
 ## [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
 Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labeled. [Updated 5/04/23]
