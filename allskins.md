@@ -4,7 +4,9 @@ Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT),
 The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. ...these are not created in mind for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
 
 Current: The Sun The Moon The Star
+
 Previous: Spodai (11/27/23)
+
 Current finished skin count: 29
 
 
