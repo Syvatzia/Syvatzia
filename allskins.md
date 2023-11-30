@@ -1,5 +1,5 @@
 # Syvatzia's skins
-Commissions: Get in contact with me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](https://osu.ppy.sh/users/19082107), or [Twtich](https://www.twitch.tv/Syvatzia)!
+Commissions: Message me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](https://osu.ppy.sh/users/19082107), or [Twtich](https://www.twitch.tv/Syvatzia)!
 
 The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. ...these are not created in mind for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
 
