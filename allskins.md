@@ -9,8 +9,7 @@ Previous: Spodai (11/27/23)
 
 Current finished skin count: 29
 
-
-## [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
+[skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
 Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labeled. [Updated 5/04/23; does not have the 3 new files]
 
 ## [‹ₛ¥ᵥ› Lighis' ✦ The Sun, The Moon, The Star ✦《Lighis》](https://drive.google.com/drive/folders/1W5Cn5MuDA49wi4qEGLq2PhgKG5YSs5MA?usp=sharing)
