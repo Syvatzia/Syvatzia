@@ -15,7 +15,7 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 ## [‹ₛ¥ᵥ› Lighis' ✦ The Sun, The Moon, The Star ✦《Lighis》](https://drive.google.com/drive/folders/1W5Cn5MuDA49wi4qEGLq2PhgKG5YSs5MA?usp=sharing)
 ![Imgur](https://i.imgur.com/r0bZxLX.png)
 ![Imgur](https://imgur.com/SpDaM8b.png)
-[Photoshop Files](https://drive.google.com/drive/folders/1VQcyRymLQSRHBFvMsQqxktUV6a_OZvZd?usp=sharing)
+[Photoshop Files](https://drive.google.com/drive/folders/14TB2REUUUM5bhCg9RoIp8DJVTveV35h0?usp=sharing)
 
 ## [‹ₛ¥ᵥ› Spodai《Spodai》](https://www.mediafire.com/file/sp8na043ty1j5q1/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Spodai_%25E3%2580%258ASpodai%25E3%2580%258B.osk/file)
 ![Imgur](https://i.imgur.com/r0bZxLX.png)
