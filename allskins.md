@@ -3,19 +3,23 @@ Commissions: Message me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](http
 
 The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. ...these are not created in mind for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
 
-Current: The Sun The Moon The Star
+Last compleated: The Sun The Moon The Star (DT)
 
-Previous: Spodai (11/27/23)
-
-Current finished skin count: 29
+Current finished skin count: 31
 
 [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
 Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labeled. [Updated 5/04/23; does not have the 3 new files]
+
+## [‹ₛ¥ᵥ› Lighis' DT ✦ The Sun, The Moon, The Star ✦《Lighis》](https://www.mediafire.com/file/nxal5y24glxm10j/‹ₛ¥ᵥ›+Lighis'+DT+✦+The+Sun,+The+Moon,+The+Star+✦.osk/file)
+![Imgur](https://i.imgur.com/r0bZxLX.png)
+![Imgur](https://imgur.com/51dBXl9)
+
 
 ## [‹ₛ¥ᵥ› Lighis' ✦ The Sun, The Moon, The Star ✦《Lighis》](https://drive.google.com/drive/folders/1W5Cn5MuDA49wi4qEGLq2PhgKG5YSs5MA?usp=sharing)
 ![Imgur](https://i.imgur.com/r0bZxLX.png)
 ![Imgur](https://imgur.com/SpDaM8b.png)
 [Photoshop Files](https://drive.google.com/drive/folders/14TB2REUUUM5bhCg9RoIp8DJVTveV35h0?usp=sharing)
+
 
 ## [‹ₛ¥ᵥ› Spodai《Spodai》](https://www.mediafire.com/file/sp8na043ty1j5q1/%25E2%2580%25B9%25E2%2582%259B%25C2%25A5%25E1%25B5%25A5%25E2%2580%25BA_Spodai_%25E3%2580%258ASpodai%25E3%2580%258B.osk/file)
 ![Imgur](https://i.imgur.com/r0bZxLX.png)
@@ -23,7 +27,7 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 [Photoshop Files](https://drive.google.com/drive/folders/1VQcyRymLQSRHBFvMsQqxktUV6a_OZvZd?usp=sharing)
 
 
-## Nightfall《OGM》    -     Private
+## [Nightfall《OGM》](https://www.mediafire.com/file/22quqhzb33ly7yc/‹ₛ¥ᵥ›+Nightfall+《OGM》.osk/file)
 ![Imgur](https://imgur.com/I3rvD8R.png)
 ![Imgur](https://i.imgur.com/5Jquhjw.png)
 
