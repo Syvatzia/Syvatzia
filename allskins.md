@@ -12,7 +12,7 @@ Has README with tips (how to get a long cursor trail etc) and programs I use, Ph
 
 ## [‹ₛ¥ᵥ› Lighis' DT ✦ The Sun, The Moon, The Star ✦《Lighis》](https://www.mediafire.com/file/nxal5y24glxm10j/‹ₛ¥ᵥ›+Lighis'+DT+✦+The+Sun,+The+Moon,+The+Star+✦.osk/file)
 ![Imgur](https://i.imgur.com/r0bZxLX.png)
-![Imgur](https://imgur.com/51dBXl9)
+![Imgur](https://imgur.com/51dBXl9.png)
 
 
 ## [‹ₛ¥ᵥ› Lighis' ✦ The Sun, The Moon, The Star ✦《Lighis》](https://drive.google.com/drive/folders/1W5Cn5MuDA49wi4qEGLq2PhgKG5YSs5MA?usp=sharing)
