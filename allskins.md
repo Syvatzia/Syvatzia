@@ -3,12 +3,17 @@ Commissions: Message me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](http
 
 The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. ...these are not created in mind for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
 
-Last completed: The Sun The Moon The Star (DT)
+Last completed: Zynight
 
-Current finished skin count: 31
+Current finished skin count: 32
 
 [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
 Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labeled. [Updated 5/04/23; does not have the 3 new files]
+
+## [‹ₛ¥ᵥ› Zynight《Zylice》](https://www.mediafire.com/file/yytefwz6m1d6kbi/‹ₛ¥ᵥ›+Zynight.osk/file)
+![Imgur](https://imgur.com/np5TWB9.png)
+![Imgur](https://imgur.com/UGc4R51.png)
+[Forum Post with all versions](https://osu.ppy.sh/community/forums/topics/2118545?n=1)
 
 ## [‹ₛ¥ᵥ› Lighis' DT ✦ The Sun, The Moon, The Star ✦《Lighis》](https://www.mediafire.com/file/nxal5y24glxm10j/‹ₛ¥ᵥ›+Lighis'+DT+✦+The+Sun,+The+Moon,+The+Star+✦.osk/file)
 ![Imgur](https://i.imgur.com/r0bZxLX.png)
