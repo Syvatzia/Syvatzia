@@ -4,6 +4,7 @@ Commissions: Message me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](http
 The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. ...these are not created in mind for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
 
 Last completed: Zynight
+
 I will proabably never make another classic skin, I'm on to LAZER now, baby.
 [All lazer skins](https://docs.google.com/document/d/170erPwB8ql0OW7_FwrO-ME6ydWIHblMaZKDFFjqa-0I/edit?usp=sharing)
 
