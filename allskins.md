@@ -4,8 +4,8 @@ Commissions: Message me on [Discord](https://discord.gg/ftrQeYRuZT), [OSU!](http
 The more recent skins may have their Photoshop, After Effects, Audition/Shotcut files. ...these are not created in mind for others to use, they are unorganized, scuffed and all around might be hard to edit. Good luck! <3
 
 Last completed: Zynight
-
-Current finished skin count: 32
+I will proabably never make another classic skin, I'm on to LAZER now, baby.
+[All lazer skins](https://docs.google.com/document/d/170erPwB8ql0OW7_FwrO-ME6ydWIHblMaZKDFFjqa-0I/edit?usp=sharing)
 
 [skin template](https://www.mediafire.com/file/rlmfd4i0vtqwigr/Syvatzia's+Skin+Template.osk/file)
 Has README with tips (how to get a long cursor trail etc) and programs I use, Photoshop files with general layout, and an image of the main song select screen with assets labeled. [Updated 5/04/23; does not have the 3 new files]
